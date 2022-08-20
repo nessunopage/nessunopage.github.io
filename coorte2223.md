@@ -44,7 +44,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della comunicazione](https://chat.whatsapp.com/LFUxIm5bM8f7eH8uCYIHXx)
 - [Scienze e tecniche psicologiche](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) (TG) 🔴
     - [Scienze e tecniche psicologiche](https://chat.whatsapp.com/EuHerEiZriSGiFoouLFoWe) 🔴
-- [Servizio sociale](https://chat.whatsapp.com/HtGXFDkD6iEEqekg7PFqke) (Biella)
+- [Scienze politiche](https://chat.whatsapp.com/GDcaiQaEdds5XIA8tnMiAl)
+- [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8)
+- [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ)
+    - [Servizio sociale](https://chat.whatsapp.com/HtGXFDkD6iEEqekg7PFqke) (Biella)
 
 
 <br>
@@ -93,6 +96,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**20/08/22 |** Aggiunti gruppi per **Scienze strategiche, Servizio sociale, Scienze politiche**<br>
 >**19/08/22 |** Aggiunti gruppi per **Matematica, Psicologia clinica, Scienze e tecniche psicologiche (doppione c:)**<br>
 >**14/08/22 |** Aggiunto gruppo per **Economia Aziendale Corso C**<br>
 >**13/08/22 |** Aggiunti gruppi per **Consulenza del lavoro e gestione delle risorse umane, Mediazione linguistica**<br>
