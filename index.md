@@ -11,8 +11,8 @@
 
 
 
-- [Coorte 2022/23](https://n-essuno.github.io/coorte2223)
-- [Coorte 2021/22](https://n-essuno.github.io/coorte2122)
-- [Coorte 2020/21](https://n-essuno.github.io/coorte2021)
+- [Coorte 2022/23](https://rebrand.ly/unito-links-22-23)
+- [Coorte 2021/22](https://rebrand.ly/unito-links-21-22)
+- [Coorte 2020/21](https://rebrand.ly/unito-links-20-21)
 
 
