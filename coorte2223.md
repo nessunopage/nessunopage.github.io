@@ -33,6 +33,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT)
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
+- [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
 - [Informatica](https://bit.ly/3A2N5nR) (Raccolta gruppi)
 - [ICT](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO)
 - [Lettere](https://t.me/+yQWFiON3hr4xYWQ0) (TG)
@@ -68,7 +69,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea a Ciclo Unico 🔷**
 
-- [Blank]()
+- [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
 
 
 
@@ -96,6 +97,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**20/08/22 |** Aggiunti gruppi per **Fisica, Giurisprudenza**<br>
 >**20/08/22 |** Aggiunti gruppi per **Scienze strategiche, Servizio sociale, Scienze politiche**<br>
 >**19/08/22 |** Aggiunti gruppi per **Matematica, Psicologia clinica, Scienze e tecniche psicologiche (doppione c:)**<br>
 >**14/08/22 |** Aggiunto gruppo per **Economia Aziendale Corso C**<br>
