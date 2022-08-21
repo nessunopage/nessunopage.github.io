@@ -3,9 +3,11 @@
 ![logo](https://imgur.com/0j40uci.jpg)
 
 
->Lista dei **gruppi matricole** conosciuti per i **Corsi di Laurea dell'Università di Torino** (**per immatricolati nel 2022/23**).<br><br>
->⚠️ **ATTENZIONE** ⚠️:  **Non sono stati segnalati e non ho a disposizione altri link di gruppi al momento.** Nel caso di **eventuali nuovi link** questa pagina verrà **aggiornata**. **Non gestisco direttamente i gruppi!**<br><br>
->Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** contatta **[@N_essuno](https://t.me/N_essuno)** (Telegram)<br><br>
+> Lista dei **gruppi matricole** conosciuti per i **Corsi di Laurea dell'Università di Torino** (**per immatricolati nel 2022/23**).<br><br>
+
+### ⚠️ **<span style="color:red">ATTENZIONE</span>** ⚠️:  **Non sono stati segnalati e non ho a disposizione altri link di gruppi al momento.** Nel caso di **eventuali nuovi link** questa pagina verrà **aggiornata**. **Non gestisco direttamente i gruppi!**<br><br>
+
+> Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** contatta **[@N_essuno](https://t.me/N_essuno)** (Telegram)<br><br>
 >P.s. Per cercare un gruppo puoi usare l'opzione di "ricerca parole" del tuo browser.
 
 . . .
