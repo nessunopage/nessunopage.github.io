@@ -97,7 +97,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**20/08/22 |** Aggiunti gruppi per **Fisica, Giurisprudenza**<br>
+>**21/08/22 |** Aggiunti gruppi per **Fisica, Giurisprudenza**<br>
 >**20/08/22 |** Aggiunti gruppi per **Scienze strategiche, Servizio sociale, Scienze politiche**<br>
 >**19/08/22 |** Aggiunti gruppi per **Matematica, Psicologia clinica, Scienze e tecniche psicologiche (doppione c:)**<br>
 >**14/08/22 |** Aggiunto gruppo per **Economia Aziendale Corso C**<br>
