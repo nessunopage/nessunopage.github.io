@@ -128,12 +128,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ***
 
-Comunicazione pubblica e politica: https://chat.whatsapp.com/KFgAamX7zmNEUATd567izY 
-Scienze del governo: https://chat.whatsapp.com/BmF4L60X7HA0qGkx5dCYbu 
-Agic: https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE 
-Scienze internazionali: https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w 
- 
-
 ### ⇊ *Changelog* ⇊
 
 >**22/08/22 |** Aggiunti gruppi per **Scienze pedagogiche, Lingue e letterature moderne (doppione), Filosofia (LM), Lingue e letterature moderne LM (doppione), Traduzione (doppione), Matematica per la finanza e l’assicurazione, Produzioni e gestione degli animali in allevamento e selvatici, Scienze agrarie, Scienze della comunicazione (doppione), Culture e letterature del mondo moderno (LM), Lingue e culture dell’Asia e dell’Africa, Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale, Culture moderne comparate, Economia e statistica per le organizzazioni, Economia dell'ambiente, della cultura e del territorio, Metodi statistici ed economici per le decisioni, Scienze della formazione primaria (Savigliano), Comunicazione e culture dei media, Comunicazione interculturale (doppione), ICT (doppione), Scienze politiche (doppione), Scienze strategiche (doppione), Scienze internazionali, dello sviluppo e della coopoerazione, Comunicazione pubblica e politica (doppione), Scienze del governo, Area and global studies for International Cooperation, Scienze internazionali (doppione), Storia dell'arte**<br>
