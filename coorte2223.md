@@ -34,7 +34,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
-    - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ) 🔴
+    - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
     - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
