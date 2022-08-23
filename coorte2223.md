@@ -34,9 +34,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
-    - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
-- [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT)
-- [Economia e statistica per le organizzazioni](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 
+    - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ) 🔴
+- [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
+    - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
 - [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
 - [Informatica](https://bit.ly/3A2N5nR) (Raccolta gruppi)
@@ -130,7 +130,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**22/08/22 |** Aggiunti gruppi per **Scienze pedagogiche, Lingue e letterature moderne (doppione), Filosofia (LM), Lingue e letterature moderne LM (doppione), Traduzione (doppione), Matematica per la finanza e l’assicurazione, Produzioni e gestione degli animali in allevamento e selvatici, Scienze agrarie, Scienze della comunicazione (doppione), Culture e letterature del mondo moderno (LM), Lingue e culture dell’Asia e dell’Africa, Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale, Culture moderne comparate, Economia e statistica per le organizzazioni, Economia dell'ambiente, della cultura e del territorio, Metodi statistici ed economici per le decisioni, Scienze della formazione primaria (Savigliano), Comunicazione e culture dei media, Comunicazione interculturale (doppione), ICT (doppione), Scienze politiche (doppione), Scienze strategiche (doppione), Scienze internazionali, dello sviluppo e della coopoerazione, Comunicazione pubblica e politica (doppione), Scienze del governo, Area and global studies for International Cooperation, Scienze internazionali (doppione), Storia dell'arte**<br>
+>**22/08/22 |** Aggiunti gruppi per **Scienze pedagogiche, Lingue e letterature moderne (doppione), Filosofia (LM), Lingue e letterature moderne LM (doppione), Traduzione (doppione), Matematica per la finanza e l’assicurazione, Produzioni e gestione degli animali in allevamento e selvatici, Scienze agrarie, Scienze della comunicazione (doppione), Culture e letterature del mondo moderno (LM), Lingue e culture dell’Asia e dell’Africa, Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale, Culture moderne comparate, Economia e statistica per le organizzazioni (doppione), Economia dell'ambiente, della cultura e del territorio, Metodi statistici ed economici per le decisioni, Scienze della formazione primaria (Savigliano), Comunicazione e culture dei media, Comunicazione interculturale (doppione), ICT (doppione), Scienze politiche (doppione), Scienze strategiche (doppione), Scienze internazionali, dello sviluppo e della coopoerazione, Comunicazione pubblica e politica (doppione), Scienze del governo, Area and global studies for International Cooperation, Scienze internazionali (doppione), Storia dell'arte**<br>
 >**21/08/22 |** Aggiunti gruppi per **Fisica, Giurisprudenza**<br>
 >**20/08/22 |** Aggiunti gruppi per **Scienze strategiche, Servizio sociale, Scienze politiche**<br>
 >**19/08/22 |** Aggiunti gruppi per **Matematica, Psicologia clinica, Scienze e tecniche psicologiche (doppione c:)**<br>
@@ -141,7 +141,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 >**09/08/22 |** Aggiunti gruppi per **Innovazione sociale, Comunicazione e Nuove Tecnologie - ICT, Lettere**<br>
 >**06/08/22 |** Aggiunti gruppi per **Comunicazione pubblica e politica, Comunicazione interculturale, Economia e management internazionale, Economia aziendale**<br>
 >**30/07/22 |** Aggiunto gruppo per **Finanza aziendale e mercati finanziari**<br>
->**29/07/22 |** Aggiunto gruppo per **Economia e statistica**<br>
+>**29/07/22 |** Aggiunto gruppo per **Economia e statistica per le organizzazioni**<br>
 >**27/07/22 |** Aggiunti gruppi per **Global law and transnational legal studies, Scienze dell'amministrazione digitale, Scienze della comunicazione, Scienze internazionali, Diritto delle imprese e delle istituzioni, Scienze dell'educazione**<br>
 >**21/07/22 |** Aggiunti gruppi per **Lingue straniere per la comunicazione internazionale, Traduzione, Scienze e tecniche psicologiche**<br>
 >**20/07/22 |** Aggiunto gruppo per **Informatica**<br>
