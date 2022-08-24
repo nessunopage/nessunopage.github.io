@@ -57,6 +57,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della comunicazione](https://chat.whatsapp.com/LFUxIm5bM8f7eH8uCYIHXx) 🔴
     - [Scienze della comunicazione](https://chat.whatsapp.com/Dc1ESZc3NvZE5n82SKCSSv) 🔴
 - [Scienze della formazione primaria (Savigliano)](https://chat.whatsapp.com/ELr98Fm6wNG7ihaTpn8yx7)
+- [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
 - [Scienze e tecniche psicologiche](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) (TG) 🔴
     - [Scienze e tecniche psicologiche](https://chat.whatsapp.com/EuHerEiZriSGiFoouLFoWe) 🔴
 - [Scienze internazionali, dello sviluppo e della coopoerazione](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT) 
@@ -130,6 +131,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**24/08/22 |** Aggiunto gruppo per **Scienze della formazione primaria (Collegno)**<br>
 >**22/08/22 |** Aggiunti gruppi per **Scienze pedagogiche, Lingue e letterature moderne (doppione), Filosofia (LM), Lingue e letterature moderne LM (doppione), Traduzione (doppione), Matematica per la finanza e l’assicurazione, Produzioni e gestione degli animali in allevamento e selvatici, Scienze agrarie, Scienze della comunicazione (doppione), Culture e letterature del mondo moderno (LM), Lingue e culture dell’Asia e dell’Africa, Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale, Culture moderne comparate, Economia e statistica per le organizzazioni (doppione), Economia dell'ambiente, della cultura e del territorio, Metodi statistici ed economici per le decisioni, Scienze della formazione primaria (Savigliano), Comunicazione e culture dei media, Comunicazione interculturale (doppione), ICT (doppione), Scienze politiche (doppione), Scienze strategiche (doppione), Scienze internazionali, dello sviluppo e della coopoerazione, Comunicazione pubblica e politica (doppione), Scienze del governo, Area and global studies for International Cooperation, Scienze internazionali (doppione), Storia dell'arte**<br>
 >**21/08/22 |** Aggiunti gruppi per **Fisica, Giurisprudenza**<br>
 >**20/08/22 |** Aggiunti gruppi per **Scienze strategiche, Servizio sociale, Scienze politiche**<br>
