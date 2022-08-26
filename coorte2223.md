@@ -44,6 +44,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Informatica](https://bit.ly/3A2N5nR) (Raccolta gruppi)
 - [ICT](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO) 🔴
     - [ICT](https://chat.whatsapp.com/CqNJR7lbsmd72YnmTJnAUV) 🔴
+- [Infiermeristica](https://t.me/matricoleunito1)
 - [Lettere](https://t.me/+yQWFiON3hr4xYWQ0) (TG)
 - [Lingue e culture dell’Asia e dell’Africa](https://chat.whatsapp.com/I4feSiJM6Wk3dNgACFtE3C)
 - [Lingue e letterature moderne](https://t.me/+aLFIa5kSVaQ5OTQ8) (TG) 🔴
@@ -139,7 +140,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**26/08/22 |** Aggiunti gruppi per **Sociologia, Politiche e servizi sociali, Economia aziendale (Cuneo), DAMS, Giurisprudenza (Cuneo), CAM, Archeologia e storia antica, Business administration**<br>
+>**26/08/22 |** Aggiunti gruppi per **Sociologia, Politiche e servizi sociali, Economia aziendale (Cuneo), DAMS, Giurisprudenza (Cuneo), CAM, Archeologia e storia antica, Business administration, Infermieristica**<br>
 >**24/08/22 |** Aggiunto gruppo per **Scienze della formazione primaria (Collegno)**<br>
 >**22/08/22 |** Aggiunti gruppi per **Scienze pedagogiche, Lingue e letterature moderne (doppione), Filosofia (LM), Lingue e letterature moderne LM (doppione), Traduzione (doppione), Matematica per la finanza e l’assicurazione, Produzioni e gestione degli animali in allevamento e selvatici, Scienze agrarie, Scienze della comunicazione (doppione), Culture e letterature del mondo moderno (LM), Lingue e culture dell’Asia e dell’Africa, Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale, Culture moderne comparate, Economia e statistica per le organizzazioni (doppione), Economia dell'ambiente, della cultura e del territorio, Metodi statistici ed economici per le decisioni, Scienze della formazione primaria (Savigliano), Comunicazione e culture dei media, Comunicazione interculturale (doppione), ICT (doppione), Scienze politiche (doppione), Scienze strategiche (doppione), Scienze internazionali, dello sviluppo e della coopoerazione, Comunicazione pubblica e politica (doppione), Scienze del governo, Area and global studies for International Cooperation, Scienze internazionali (doppione), Storia dell'arte**<br>
 >**21/08/22 |** Aggiunti gruppi per **Fisica, Giurisprudenza**<br>
