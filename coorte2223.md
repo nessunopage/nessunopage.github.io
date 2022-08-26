@@ -32,9 +32,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Comunicazione interculturale](https://chat.whatsapp.com/K2Af6z9gUCU63OCwuZDnfx) 
 - [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/Lj1L1ixAuuWI5GijWYizyP)
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
+- [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
+    - [Cuneo](https://chat.whatsapp.com/EBzsZVbxwdD1IP6x3xL5Hk)
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
     - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
@@ -50,12 +52,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Matematica per la finanza e l’assicurazione](https://chat.whatsapp.com/FoTacr77TOVK6cw6t725OB)
 - [Mediazione linguistica](https://t.me/+temM4IKwqYA3NmQ0) (TG) 🔴
     - [Mediazione linguistica](https://chat.whatsapp.com/ItKXLjF6EbkJbs2AHfIuPU) 🔴
+- [Politiche e servizi sociali](https://chat.whatsapp.com/JPIhQg2Oyz7GGMIr6sSoiD)
 - [Produzioni e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/BdoWYwHCARbB2o7B50v9wU)
-- [Scienze agrarie](https://chat.whatsapp.com/DW3TRD4zdkY0XrZA4kgK9y)
+- [Scienze e tecniche agrarie](https://chat.whatsapp.com/DW3TRD4zdkY0XrZA4kgK9y)
 - [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/K0fNXdYWwMW58dz6DRHvIF)
-- [Scienze dell'educazione](https://t.me/eduscienzto) (TG)
-- [Scienze della comunicazione](https://chat.whatsapp.com/LFUxIm5bM8f7eH8uCYIHXx) 🔴
-    - [Scienze della comunicazione](https://chat.whatsapp.com/Dc1ESZc3NvZE5n82SKCSSv) 🔴
+- [Scienze dell'educazione](https://t.me/eduscienzto) (TG) 🔴
+    - [Scienze dell'educazione](https://chat.whatsapp.com/FDWEFf2zmSeBb4k8vg8Gcf) 🔴
+- [Scienze della comunicazione](https://chat.whatsapp.com/LFUxIm5bM8f7eH8uCYIHXx)
 - [Scienze della formazione primaria (Savigliano)](https://chat.whatsapp.com/ELr98Fm6wNG7ihaTpn8yx7)
 - [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
 - [Scienze e tecniche psicologiche](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) (TG) 🔴
@@ -75,7 +78,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Laurea Magistrale 🔶**
 
+- [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for International Cooperation](https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE)
+- [Business administration](https://chat.whatsapp.com/IlniZ6WJzl3E8jSAI54yLm)
+- [CAM](https://chat.whatsapp.com/Lc0Kd19EeJBCiKOmiS30Be)
 - [Comunicazione e culture dei media](https://chat.whatsapp.com/JWFZCIEQaX6DEVrS17Bq4i)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/IelVvP4nAUR2ToIbDYszeq) 🔴
     - [Comunicazione pubblica e politica](https://chat.whatsapp.com/KFgAamX7zmNEUATd567izY) 🔴
@@ -94,6 +100,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della comunicazione e culture dei media](https://t.me/+uxmy_CBYyLsxNzI0) (TG)
 - [Scienze internazionali](https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w) 🔴
     - [Scienze internazionali](https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w) 🔴
+- [Sociologia](https://chat.whatsapp.com/EnGhsRcYZEhKhi6543qduk)
 - [Storia dell'arte](https://chat.whatsapp.com/FLmEXipvxB21uJmK6QzMcD)
 - [Traduzione](https://chat.whatsapp.com/EgR85RGWcE3B29UlJDRjOG) 🔴
     - [Traduzione](https://chat.whatsapp.com/CbJaAwWksnGGpbw4ulVF1t) 🔴
@@ -104,6 +111,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea a Ciclo Unico 🔷**
 
 - [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
+    - [Cuneo](https://chat.whatsapp.com/Fh6RCrMphLv6fNWEqzsf5i)
 
 
 
@@ -131,6 +139,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**26/08/22 |** Aggiunti gruppi per **Sociologia, Politiche e servizi sociali, Economia aziendale (Cuneo), DAMS, Giurisprudenza (Cuneo), CAM, Archeologia e storia antica, Business administration**<br>
 >**24/08/22 |** Aggiunto gruppo per **Scienze della formazione primaria (Collegno)**<br>
 >**22/08/22 |** Aggiunti gruppi per **Scienze pedagogiche, Lingue e letterature moderne (doppione), Filosofia (LM), Lingue e letterature moderne LM (doppione), Traduzione (doppione), Matematica per la finanza e l’assicurazione, Produzioni e gestione degli animali in allevamento e selvatici, Scienze agrarie, Scienze della comunicazione (doppione), Culture e letterature del mondo moderno (LM), Lingue e culture dell’Asia e dell’Africa, Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale, Culture moderne comparate, Economia e statistica per le organizzazioni (doppione), Economia dell'ambiente, della cultura e del territorio, Metodi statistici ed economici per le decisioni, Scienze della formazione primaria (Savigliano), Comunicazione e culture dei media, Comunicazione interculturale (doppione), ICT (doppione), Scienze politiche (doppione), Scienze strategiche (doppione), Scienze internazionali, dello sviluppo e della coopoerazione, Comunicazione pubblica e politica (doppione), Scienze del governo, Area and global studies for International Cooperation, Scienze internazionali (doppione), Storia dell'arte**<br>
 >**21/08/22 |** Aggiunti gruppi per **Fisica, Giurisprudenza**<br>
