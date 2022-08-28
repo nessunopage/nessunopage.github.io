@@ -35,6 +35,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
+    - [Corso B](https://chat.whatsapp.com/FAHy3LhkJC1LgUBE3qLq5f)
     - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
     - [Cuneo](https://chat.whatsapp.com/EBzsZVbxwdD1IP6x3xL5Hk)
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
@@ -90,9 +91,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture moderne comparate](https://chat.whatsapp.com/GLPjUMf9im0A9I6hAi4Qfp)
 - [Economia dell'ambiente, della cultura e del territorio](https://chat.whatsapp.com/EkqrHeYusw93lD2DSrh64V)
 - [Economia e management internazionale](https://t.me/economiaemanagementinternazional) (TG)
+- [Filologia, Letterature e Storia dell'antichità](https://chat.whatsapp.com/FWaxkOrNI2aGceZ93G30D1)
 - [Filosofia](https://t.me/+0KzGft82VFIzZjE8) (TG) 🔴
     - [Filosofia](https://chat.whatsapp.com/L6X7FxthsPm3MvWiMfgAMN) 🔴
 - [Finanza aziendale e mercati finanziari](https://t.me/+gsVR6vcrdZI5ZWY0) (TG)
+- [Letteratura, Filologia e Linguistica italiana](https://chat.whatsapp.com/LToTH1HIhWM8I8sqoX9Xbrl)
+- [Language Technologies and Digital Humanities](https://chat.whatsapp.com/LDGTNAPegvP5sgpdGSXhca)
 - [Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/ERkvhPx6HkX6aCUByx50PT)
 - [Lingue e letterature moderne](https://chat.whatsapp.com/CVw4h7zZzVI0BMSUlcow8r)
 - [Lingue straniere per la comunicazione internazionale LM-38](https://chat.whatsapp.com/BGK82L7vpC0KGJrsUlp1Rf)
@@ -102,6 +106,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della comunicazione e culture dei media](https://t.me/+uxmy_CBYyLsxNzI0) (TG)
 - [Scienze internazionali](https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w) 🔴
     - [Scienze internazionali](https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w) 🔴
+- [Scienze linguistiche](https://chat.whatsapp.com/DxCvFPGcAtG6qF9ilGL0ze)
 - [Sociologia](https://chat.whatsapp.com/EnGhsRcYZEhKhi6543qduk)
 - [Storia dell'arte](https://chat.whatsapp.com/FLmEXipvxB21uJmK6QzMcD)
 - [Traduzione](https://chat.whatsapp.com/EgR85RGWcE3B29UlJDRjOG) 🔴
@@ -141,6 +146,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**28/08/22 |** Aggiunti gruppi per **Filologia Letterature e Storia dell'antichità; Letteratura, Filologia e Linguistica italiana; Scienze linguistiche; Language Technologies and Digital Humanities, Economia aziendale (Corso B)**<br>
 >**26/08/22 |** Aggiunti gruppi per **Sociologia, Politiche e servizi sociali, Economia aziendale (Cuneo), DAMS, Giurisprudenza (Cuneo), CAM, Archeologia e storia antica, Business administration, Infermieristica, Filosofia**<br>
 >**24/08/22 |** Aggiunto gruppo per **Scienze della formazione primaria (Collegno)**<br>
 >**22/08/22 |** Aggiunti gruppi per **Scienze pedagogiche, Lingue e letterature moderne (doppione), Filosofia (LM), Lingue e letterature moderne LM (doppione), Traduzione (doppione), Matematica per la finanza e l’assicurazione, Produzioni e gestione degli animali in allevamento e selvatici, Scienze agrarie, Scienze della comunicazione (doppione), Culture e letterature del mondo moderno (LM), Lingue e culture dell’Asia e dell’Africa, Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale, Culture moderne comparate, Economia e statistica per le organizzazioni (doppione), Economia dell'ambiente, della cultura e del territorio, Metodi statistici ed economici per le decisioni, Scienze della formazione primaria (Savigliano), Comunicazione e culture dei media, Comunicazione interculturale (doppione), ICT (doppione), Scienze politiche (doppione), Scienze strategiche (doppione), Scienze internazionali, dello sviluppo e della coopoerazione, Comunicazione pubblica e politica (doppione), Scienze del governo, Area and global studies for International Cooperation, Scienze internazionali (doppione), Storia dell'arte**<br>
