@@ -32,6 +32,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Comunicazione interculturale](https://chat.whatsapp.com/K2Af6z9gUCU63OCwuZDnfx) 
 - [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/Lj1L1ixAuuWI5GijWYizyP)
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
+- [Business and management](https://chat.whatsapp.com/IGDburhE6eOK5z7JC2yuzh)
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
@@ -43,7 +44,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Filosofia](https://t.me/filosofia22_23)
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
 - [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
-- [Informatica](https://bit.ly/3A2N5nR) (Raccolta gruppi)
+- [Informatica](https://bit.ly/3RLUMqI) (TG)
+    - [Informatica](https://bit.ly/3A2N5nR) (Raccolta gruppi)
 - [ICT](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO) 🔴
     - [ICT](https://chat.whatsapp.com/CqNJR7lbsmd72YnmTJnAUV) 🔴
 - [Infiermeristica](https://t.me/matricoleunito1)
@@ -147,6 +149,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**30/08/22 |** Aggiunto gruppo per **Business and management**<br>
 >**28/08/22 |** Aggiunti gruppi per **Filologia Letterature e Storia dell'antichità; Letteratura, Filologia e Linguistica italiana; Scienze linguistiche; Language Technologies and Digital Humanities, Economia aziendale (Corso B)**<br>
 >**26/08/22 |** Aggiunti gruppi per **Sociologia, Politiche e servizi sociali, Economia aziendale (Cuneo), DAMS, Giurisprudenza (Cuneo), CAM, Archeologia e storia antica, Business administration, Infermieristica, Filosofia**<br>
 >**24/08/22 |** Aggiunto gruppo per **Scienze della formazione primaria (Collegno)**<br>
