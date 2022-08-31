@@ -36,6 +36,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
+    - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
     - [Corso B](https://chat.whatsapp.com/FAHy3LhkJC1LgUBE3qLq5f)
     - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
     - [Cuneo](https://chat.whatsapp.com/EBzsZVbxwdD1IP6x3xL5Hk)
@@ -149,6 +150,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**31/08/22 |** Aggiunto gruppo per **Economia aziendale (Corso A)**<br>
 >**30/08/22 |** Aggiunto gruppo per **Business and management**<br>
 >**28/08/22 |** Aggiunti gruppi per **Filologia Letterature e Storia dell'antichità; Letteratura, Filologia e Linguistica italiana; Scienze linguistiche; Language Technologies and Digital Humanities, Economia aziendale (Corso B)**<br>
 >**26/08/22 |** Aggiunti gruppi per **Sociologia, Politiche e servizi sociali, Economia aziendale (Cuneo), DAMS, Giurisprudenza (Cuneo), CAM, Archeologia e storia antica, Business administration, Infermieristica, Filosofia**<br>
