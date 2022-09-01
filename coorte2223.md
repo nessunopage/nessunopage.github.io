@@ -28,10 +28,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea Triennale 🔷**
 
+- [Chimica](https://t.me/+TABpqM3PMDY3NGY0) (TG)
 - [Comunicazione interculturale](https://t.me/+UiJxF1hdPTYwN2Q0) (TG)
     - [Comunicazione interculturale](https://chat.whatsapp.com/K2Af6z9gUCU63OCwuZDnfx) 
 - [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/Lj1L1ixAuuWI5GijWYizyP)
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
+- [Biotecnologie](https://chat.whatsapp.com/KqOAJyIEIGiAVC3F0GqzfN)
 - [Business and management](https://chat.whatsapp.com/IGDburhE6eOK5z7JC2yuzh)
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
@@ -54,6 +56,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e culture dell’Asia e dell’Africa](https://chat.whatsapp.com/I4feSiJM6Wk3dNgACFtE3C)
 - [Lingue e letterature moderne](https://t.me/+aLFIa5kSVaQ5OTQ8) (TG) 🔴
     - [Lingue e letterature moderne](https://chat.whatsapp.com/LpCuXf61ItxIoolN0EUmnn) 🔴
+- [Management dell'Informazione e della Comunicazione Aziendale](https://chat.whatsapp.com/Es1UaUfZ7GN1h0J7YUs5Ko)
 - [Matematica](https://chat.whatsapp.com/Dq2DFc4Ff3d8e7idbjwsE3)
 - [Matematica per la finanza e l’assicurazione](https://chat.whatsapp.com/FoTacr77TOVK6cw6t725OB)
 - [Mediazione linguistica](https://t.me/+temM4IKwqYA3NmQ0) (TG) 🔴
@@ -121,6 +124,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea a Ciclo Unico 🔷**
 
+- [Farmacia - Chimica e tecnologie farmaceutiche](https://chat.whatsapp.com/EyyBbqikq3cFuo8kjYe66T)
 - [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
     - [Cuneo](https://chat.whatsapp.com/Fh6RCrMphLv6fNWEqzsf5i)
 
@@ -150,6 +154,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+
+>**01/09/22 |** Aggiunti gruppi per **Management dell'Informazione e della Comunicazione Aziendale, Chimica, Biotecnologie, Farmacia - Chimica e tecnologie farmaceutiche**<br>
 >**31/08/22 |** Aggiunto gruppo per **Economia aziendale (Corso A)**<br>
 >**30/08/22 |** Aggiunto gruppo per **Business and management**<br>
 >**28/08/22 |** Aggiunti gruppi per **Filologia Letterature e Storia dell'antichità; Letteratura, Filologia e Linguistica italiana; Scienze linguistiche; Language Technologies and Digital Humanities, Economia aziendale (Corso B)**<br>
