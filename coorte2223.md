@@ -37,7 +37,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Business and management](https://chat.whatsapp.com/IGDburhE6eOK5z7JC2yuzh)
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
-- [Economia](https://t.me/+FRKQluAmuKAyZjg8) (TG)
+- [Economia](https://chat.whatsapp.com/KLHti2PG7Eq3PTZ7w1YapV)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
     - [Corso B](https://chat.whatsapp.com/FAHy3LhkJC1LgUBE3qLq5f)
@@ -64,6 +64,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Mediazione linguistica](https://chat.whatsapp.com/ItKXLjF6EbkJbs2AHfIuPU) 🔴
 - [Politiche e servizi sociali](https://chat.whatsapp.com/JPIhQg2Oyz7GGMIr6sSoiD)
 - [Produzioni e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/BdoWYwHCARbB2o7B50v9wU)
+- [Scienze biologiche](https://t.me/+d8tQ2CQ5cDViYTM0) (TG)
 - [Scienze e tecniche agrarie](https://chat.whatsapp.com/DW3TRD4zdkY0XrZA4kgK9y)
 - [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/K0fNXdYWwMW58dz6DRHvIF)
 - [Scienze dell'educazione](https://t.me/eduscienzto) (TG) 🔴
@@ -157,7 +158,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 ### ⇊ *Changelog* ⇊
 
 
->**02/09/22 |** Aggiunti gruppi per **Storia, Economia**<br>
+>**02/09/22 |** Aggiunti gruppi per **Storia, Economia, Scienze biologiche**<br>
 >**01/09/22 |** Aggiunti gruppi per **Management dell'Informazione e della Comunicazione Aziendale, Chimica, Biotecnologie, Farmacia - Chimica e tecnologie farmaceutiche**<br>
 >**31/08/22 |** Aggiunto gruppo per **Economia aziendale (Corso A)**<br>
 >**30/08/22 |** Aggiunto gruppo per **Business and management**<br>
