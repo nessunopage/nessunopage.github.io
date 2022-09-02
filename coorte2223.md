@@ -37,6 +37,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Business and management](https://chat.whatsapp.com/IGDburhE6eOK5z7JC2yuzh)
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
+- [Economia](https://t.me/+FRKQluAmuKAyZjg8) (TG)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
     - [Corso B](https://chat.whatsapp.com/FAHy3LhkJC1LgUBE3qLq5f)
@@ -82,6 +83,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ) 🔴
     - [Servizio sociale](https://chat.whatsapp.com/KQcCDGK6Y0t5sq04i5zzKk) 🔴
     - [Servizio sociale](https://chat.whatsapp.com/HtGXFDkD6iEEqekg7PFqke) (Biella)
+- [Storia](https://t.me/storiaunito2223) (TG)
 
 
 <br>
@@ -154,6 +156,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+
+>**02/09/22 |** Aggiunti gruppi per **Storia, Economia**<br>
 >**01/09/22 |** Aggiunti gruppi per **Management dell'Informazione e della Comunicazione Aziendale, Chimica, Biotecnologie, Farmacia - Chimica e tecnologie farmaceutiche**<br>
 >**31/08/22 |** Aggiunto gruppo per **Economia aziendale (Corso A)**<br>
 >**30/08/22 |** Aggiunto gruppo per **Business and management**<br>
