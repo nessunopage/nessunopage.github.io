@@ -30,6 +30,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Chimica](https://t.me/+TABpqM3PMDY3NGY0) (TG)
     - [Gruppo A](https://chat.whatsapp.com/E23YGqtKDFOFnK4v6lYFOM)
+    - [Gruppo B](https://chat.whatsapp.com/E8ovvIW5Mlg7qtua9rL4Bi)
 - [Comunicazione interculturale](https://t.me/+UiJxF1hdPTYwN2Q0) (TG)
     - [Comunicazione interculturale](https://chat.whatsapp.com/K2Af6z9gUCU63OCwuZDnfx) 
 - [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/Lj1L1ixAuuWI5GijWYizyP)
@@ -160,7 +161,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 ### ⇊ *Changelog* ⇊
 
 
->**03/09/22 |** Aggiunto gruppo per **Chimica (gruppo A)**<br>
+>**03/09/22 |** Aggiunti gruppi per **Chimica (gruppi A e B)**<br>
 >**02/09/22 |** Aggiunti gruppi per **Storia, Economia, Scienze biologiche, Beni culturali**<br>
 >**01/09/22 |** Aggiunti gruppi per **Management dell'Informazione e della Comunicazione Aziendale, Chimica, Biotecnologie, Farmacia - Chimica e tecnologie farmaceutiche**<br>
 >**31/08/22 |** Aggiunto gruppo per **Economia aziendale (Corso A)**<br>
