@@ -168,7 +168,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 >**03/09/22 |** Aggiunti gruppi per **Chimica (gruppi A e B)**<br>
 >**02/09/22 |** Aggiunti gruppi per **Storia, Economia, Scienze biologiche, Beni culturali**<br>
 >**01/09/22 |** Aggiunti gruppi per **Management dell'Informazione e della Comunicazione Aziendale, Chimica, Biotecnologie, Farmacia - Chimica e tecnologie farmaceutiche**<br>
->**31/08/22 |** Aggiunto gruppo per **Economia aziendale (Corso A)**<br>
+
+>**🔺 Cronologia eliminata da 20/07/22 a  31/08/22 🔺**<br>
+
+<!---
+Cronologia eliminata 
+
+**31/08/22 |** Aggiunto gruppo per **Economia aziendale (Corso A)**<br>
 >**30/08/22 |** Aggiunto gruppo per **Business and management**<br>
 >**28/08/22 |** Aggiunti gruppi per **Filologia Letterature e Storia dell'antichità; Letteratura, Filologia e Linguistica italiana; Scienze linguistiche; Language Technologies and Digital Humanities, Economia aziendale (Corso B)**<br>
 >**26/08/22 |** Aggiunti gruppi per **Sociologia, Politiche e servizi sociali, Economia aziendale (Cuneo), DAMS, Giurisprudenza (Cuneo), CAM, Archeologia e storia antica, Business administration, Infermieristica, Filosofia**<br>
@@ -189,4 +195,4 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 >**21/07/22 |** Aggiunti gruppi per **Lingue straniere per la comunicazione internazionale, Traduzione, Scienze e tecniche psicologiche**<br>
 >**20/07/22 |** Aggiunto gruppo per **Informatica**<br>
 >**20/07/22 |** Creazione **raccolta**<br>
->**🔺 Cronologia eliminata da --/--/-- a  --/--/-- 🔺**<br>
+-->
