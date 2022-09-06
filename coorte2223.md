@@ -60,6 +60,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lettere](https://t.me/+yQWFiON3hr4xYWQ0) (TG)
 - [Lettere moderne](https://chat.whatsapp.com/BqoOIrRGFeJD2wQq60piFG)
 - [Lingue e culture dell’Asia e dell’Africa](https://chat.whatsapp.com/I4feSiJM6Wk3dNgACFtE3C)
+- [Lingue e culture per il turismo](https://t.me/+o3YFFrfAlk9hMTNk) (TG)
 - [Lingue e letterature moderne](https://t.me/+aLFIa5kSVaQ5OTQ8) (TG) 🔴
     - [Lingue e letterature moderne](https://chat.whatsapp.com/LpCuXf61ItxIoolN0EUmnn) 🔴
 - [Management dell'Informazione e della Comunicazione Aziendale](https://chat.whatsapp.com/Es1UaUfZ7GN1h0J7YUs5Ko)
@@ -164,7 +165,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**06/09/22 |** Aggiunti gruppi per **Monitoraggio ambientale, tutela e ripristino, Amministrazione aziendale, Programmazione e gestione dei servizi educativi e formativi, Lettere moderne**<br>
+>**06/09/22 |** Aggiunti gruppi per **Monitoraggio ambientale, tutela e ripristino, Amministrazione aziendale, Programmazione e gestione dei servizi educativi e formativi, Lettere moderne, Lingue e culture per il turismo**<br>
 >**03/09/22 |** Aggiunti gruppi per **Chimica (gruppi A e B)**<br>
 >**02/09/22 |** Aggiunti gruppi per **Storia, Economia, Scienze biologiche, Beni culturali**<br>
 >**01/09/22 |** Aggiunti gruppi per **Management dell'Informazione e della Comunicazione Aziendale, Chimica, Biotecnologie, Farmacia - Chimica e tecnologie farmaceutiche**<br>
