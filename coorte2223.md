@@ -28,9 +28,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea Triennale 🔷**
 
+- [Amministrazione aziendale](https://chat.whatsapp.com/Jo6mf05s5E23PvVAtOCh5Z)
 - [Chimica](https://t.me/+TABpqM3PMDY3NGY0) (TG)
-    - [Gruppo A](https://chat.whatsapp.com/E23YGqtKDFOFnK4v6lYFOM)
-    - [Gruppo B](https://chat.whatsapp.com/E8ovvIW5Mlg7qtua9rL4Bi)
+    - [Gruppo A](https://chat.whatsapp.com/E23YGqtKDFOFnK4v6lYFOM) (Cognomi A-K)
+    - [Gruppo B](https://chat.whatsapp.com/E8ovvIW5Mlg7qtua9rL4Bi) (Cognomi L-Z)
 - [Comunicazione interculturale](https://t.me/+UiJxF1hdPTYwN2Q0) (TG)
     - [Comunicazione interculturale](https://chat.whatsapp.com/K2Af6z9gUCU63OCwuZDnfx) 
 - [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/Lj1L1ixAuuWI5GijWYizyP)
@@ -48,15 +49,16 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Cuneo](https://chat.whatsapp.com/EBzsZVbxwdD1IP6x3xL5Hk)
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
     - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
-- [Filosofia](https://t.me/filosofia22_23)
+- [Filosofia](https://t.me/filosofia22_23) (TG)
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
 - [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Informatica](https://bit.ly/3A2N5nR) (Raccolta gruppi)
 - [ICT](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO) 🔴
     - [ICT](https://chat.whatsapp.com/CqNJR7lbsmd72YnmTJnAUV) 🔴
-- [Infiermeristica](https://t.me/matricoleunito1)
+- [Infiermeristica](https://t.me/matricoleunito1) (TG)
 - [Lettere](https://t.me/+yQWFiON3hr4xYWQ0) (TG)
+- [Lettere moderne](https://chat.whatsapp.com/BqoOIrRGFeJD2wQq60piFG)
 - [Lingue e culture dell’Asia e dell’Africa](https://chat.whatsapp.com/I4feSiJM6Wk3dNgACFtE3C)
 - [Lingue e letterature moderne](https://t.me/+aLFIa5kSVaQ5OTQ8) (TG) 🔴
     - [Lingue e letterature moderne](https://chat.whatsapp.com/LpCuXf61ItxIoolN0EUmnn) 🔴
@@ -114,7 +116,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e letterature moderne](https://chat.whatsapp.com/CVw4h7zZzVI0BMSUlcow8r)
 - [Lingue straniere per la comunicazione internazionale LM-38](https://chat.whatsapp.com/BGK82L7vpC0KGJrsUlp1Rf)
 - [Metodi statistici ed economici per le decisioni](https://chat.whatsapp.com/Iky73jj1hUGCrDwZRO3juS)
+- [Monitoraggio ambientale, tutela e ripristino](https://t.me/+jZqJ76JNjnE0NDA0) (TG)
 - [Psicologia clinica](https://t.me/+Q7fheX99NDU3ZGJk) (TG)
+- [Programmazione e gestione dei servizi educativi e formativi](https://t.me/+70-yTBQicLE2Yjhk) (TG)
 - [Scienze del governo](https://chat.whatsapp.com/BmF4L60X7HA0qGkx5dCYbu)
 - [Scienze della comunicazione e culture dei media](https://t.me/+uxmy_CBYyLsxNzI0) (TG)
 - [Scienze internazionali](https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w) 🔴
@@ -160,7 +164,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
-
+>**06/09/22 |** Aggiunti gruppi per **Monitoraggio ambientale, tutela e ripristino, Amministrazione aziendale, Programmazione e gestione dei servizi educativi e formativi, Lettere moderne**<br>
 >**03/09/22 |** Aggiunti gruppi per **Chimica (gruppi A e B)**<br>
 >**02/09/22 |** Aggiunti gruppi per **Storia, Economia, Scienze biologiche, Beni culturali**<br>
 >**01/09/22 |** Aggiunti gruppi per **Management dell'Informazione e della Comunicazione Aziendale, Chimica, Biotecnologie, Farmacia - Chimica e tecnologie farmaceutiche**<br>
