@@ -50,6 +50,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
     - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
 - [Filosofia](https://t.me/filosofia22_23) (TG)
+- [Geologia](https://t.me/unito_geologia) (TG)
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
 - [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
@@ -86,11 +87,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Scienze politiche](https://chat.whatsapp.com/Lqt6m4Ix23i12ZH9X8F0pD) 🔴
 - [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8) 🔴
     - [Scienze strategiche](https://chat.whatsapp.com/B9atbOOyirqFEL2oUBsTqx) 🔴
+- [Scienze viticole ed enologiche](https://t.me/+4sQkRSZI9mM2YWQ0) (TG)
 - [Servizio sociale](https://chat.whatsapp.com/EDO4QKEYntG3BpwLDq8uvL) (UFFICIALE)
     - [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ) 🔴
     - [Servizio sociale](https://chat.whatsapp.com/KQcCDGK6Y0t5sq04i5zzKk) 🔴
     - [Servizio sociale](https://chat.whatsapp.com/HtGXFDkD6iEEqekg7PFqke) (Biella)
-- [Storia](https://t.me/storiaunito2223) (TG)
+- [Storia](https://t.me/storiaunito) (TG)
 
 
 <br>
@@ -111,6 +113,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Filosofia](https://t.me/+0KzGft82VFIzZjE8) (TG) 🔴
     - [Filosofia](https://chat.whatsapp.com/L6X7FxthsPm3MvWiMfgAMN) 🔴
 - [Finanza aziendale e mercati finanziari](https://t.me/+gsVR6vcrdZI5ZWY0) (TG)
+- [ICT](https://t.me/ictmagistrale) (TG)
 - [Letteratura, Filologia e Linguistica italiana](https://chat.whatsapp.com/LToTH1HIhWM8I8sqoX9Xbrl)
 - [Language Technologies and Digital Humanities](https://chat.whatsapp.com/LDGTNAPegvP5sgpdGSXhca)
 - [Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/ERkvhPx6HkX6aCUByx50PT)
@@ -119,6 +122,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Metodi statistici ed economici per le decisioni](https://chat.whatsapp.com/Iky73jj1hUGCrDwZRO3juS)
 - [Monitoraggio ambientale, tutela e ripristino](https://t.me/+jZqJ76JNjnE0NDA0) (TG)
 - [Psicologia clinica](https://t.me/+Q7fheX99NDU3ZGJk) (TG)
+- [Psicologia forense](https://t.me/+Y3AXqJlLQo5hMWJk) (TG)
+    - [Test psicologia forense](https://chat.whatsapp.com/Ebl0yGH8mVW2YIKUqeAiPF)
 - [Programmazione e gestione dei servizi educativi e formativi](https://t.me/+70-yTBQicLE2Yjhk) (TG)
 - [Scienze del governo](https://chat.whatsapp.com/BmF4L60X7HA0qGkx5dCYbu)
 - [Scienze della comunicazione e culture dei media](https://t.me/+uxmy_CBYyLsxNzI0) (TG)
@@ -165,6 +170,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**07/09/22 |** Aggiunti gruppi per **Psicologia forense + test, Scienze viticole ed enologiche, Geologia, Storia (nuovo), Magistrale ICT**<br>
 >**06/09/22 |** Aggiunti gruppi per **Monitoraggio ambientale, tutela e ripristino, Amministrazione aziendale, Programmazione e gestione dei servizi educativi e formativi, Lettere moderne, Lingue e culture per il turismo**<br>
 >**03/09/22 |** Aggiunti gruppi per **Chimica (gruppi A e B)**<br>
 >**02/09/22 |** Aggiunti gruppi per **Storia, Economia, Scienze biologiche, Beni culturali**<br>
