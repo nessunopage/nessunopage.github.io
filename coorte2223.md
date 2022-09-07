@@ -109,6 +109,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture moderne comparate](https://chat.whatsapp.com/GLPjUMf9im0A9I6hAi4Qfp)
 - [Economia dell'ambiente, della cultura e del territorio](https://chat.whatsapp.com/EkqrHeYusw93lD2DSrh64V)
 - [Economia e management internazionale](https://t.me/economiaemanagementinternazional) (TG)
+- [European legal studies](https://t.me/EULegalStudies) (TG)
 - [Filologia, Letterature e Storia dell'antichità](https://chat.whatsapp.com/FWaxkOrNI2aGceZ93G30D1)
 - [Filosofia](https://t.me/+0KzGft82VFIzZjE8) (TG) 🔴
     - [Filosofia](https://chat.whatsapp.com/L6X7FxthsPm3MvWiMfgAMN) 🔴
@@ -170,7 +171,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**07/09/22 |** Aggiunti gruppi per **Psicologia forense + test, Scienze viticole ed enologiche, Geologia, Storia (nuovo), Magistrale ICT**<br>
+>**07/09/22 |** Aggiunti gruppi per **Psicologia forense + test, Scienze viticole ed enologiche, Geologia, Storia (nuovo), Magistrale ICT, European legal studies**<br>
 >**06/09/22 |** Aggiunti gruppi per **Monitoraggio ambientale, tutela e ripristino, Amministrazione aziendale, Programmazione e gestione dei servizi educativi e formativi, Lettere moderne, Lingue e culture per il turismo**<br>
 >**03/09/22 |** Aggiunti gruppi per **Chimica (gruppi A e B)**<br>
 >**02/09/22 |** Aggiunti gruppi per **Storia, Economia, Scienze biologiche, Beni culturali**<br>
