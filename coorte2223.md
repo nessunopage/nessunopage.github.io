@@ -38,7 +38,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
 - [Beni culturali](https://chat.whatsapp.com/GSUd5CZlSTY3o5WTMVedjW)
 - [Biotecnologie](https://chat.whatsapp.com/KqOAJyIEIGiAVC3F0GqzfN)
-- [Business and management](https://chat.whatsapp.com/IGDburhE6eOK5z7JC2yuzh)
+- [Business and management](https://t.me/businessandmanagement2223) (TG)
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia](https://chat.whatsapp.com/KLHti2PG7Eq3PTZ7w1YapV)
@@ -47,6 +47,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Corso B](https://chat.whatsapp.com/FAHy3LhkJC1LgUBE3qLq5f)
     - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
     - [Cuneo](https://chat.whatsapp.com/EBzsZVbxwdD1IP6x3xL5Hk)
+- [Economia e management](https://t.me/economiaemanagementunito) (TG)
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
     - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
 - [Filosofia](https://t.me/filosofia22_23) (TG)
@@ -171,6 +172,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**09/09/22 |** Aggiunti gruppi per **Business and management (aggiornato), Economia e management**<br>
 >**07/09/22 |** Aggiunti gruppi per **Psicologia forense + test, Scienze viticole ed enologiche, Geologia, Storia (nuovo), Magistrale ICT, European legal studies**<br>
 >**06/09/22 |** Aggiunti gruppi per **Monitoraggio ambientale, tutela e ripristino, Amministrazione aziendale, Programmazione e gestione dei servizi educativi e formativi, Lettere moderne, Lingue e culture per il turismo**<br>
 >**03/09/22 |** Aggiunti gruppi per **Chimica (gruppi A e B)**<br>

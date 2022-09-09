@@ -99,8 +99,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Ostetricia](https://chat.whatsapp.com/CmFUuM90lgM4chE6wV4rx3)
 - [Produzione e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/KO1lzce7nWgFIR2NRafIfT)
 - [Psicologia pre-matricole](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) primo (TG) 🔴
-- [Psicologia A-K](https://chat.whatsapp.com/BxNf3x5lBHrJFpg7GYvvW0) 🔴
-- [Psicologia L-Z](https://chat.whatsapp.com/E0xNq9MCI9xBxEawRxIHz9) 🔴
+    - [Psicologia A-K](https://chat.whatsapp.com/BxNf3x5lBHrJFpg7GYvvW0)
+    - [Psicologia E-N](https://chat.whatsapp.com/E0xNq9MCI9xBxEawRxIHz9)
+    - [Psicologia O-Z](https://chat.whatsapp.com/Hmikx7aYWAEI1wbPnjE9aV)
 - [Scienze Biologiche](https://chat.whatsapp.com/H3jdlY9xct3EPe482MEA6m)
 - [Scienze dell'amministrazione](https://chat.whatsapp.com/K3cMmFzhcox7VHzX6GVYQK)
 - [Scienze dell'educazione](https://chat.whatsapp.com/LAK1CXnN34p7tNRpIxeM4W)
@@ -239,6 +240,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**09/09/22 |** Aggiunto gruppo per **Psicologia O-Z**<br>
 >**23/04/22 |** Aggiunto canale dei **Mediatori digitali SCIDECOM**<br>
 >**25/02/22 |** Aggiunti gruppi per **Chimica Gruppo A e B**<br>
 >**🔺 Cronologia eliminata da 11/04/21 a 09/11/21 🔺**<br>
