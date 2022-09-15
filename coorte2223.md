@@ -66,7 +66,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e letterature moderne](https://t.me/+aLFIa5kSVaQ5OTQ8) (TG) 🔴
     - [Lingue e letterature moderne](https://chat.whatsapp.com/LpCuXf61ItxIoolN0EUmnn) 🔴
 - [Management dell'Informazione e della Comunicazione Aziendale](https://chat.whatsapp.com/Es1UaUfZ7GN1h0J7YUs5Ko)
-- [Matematica](https://chat.whatsapp.com/Dq2DFc4Ff3d8e7idbjwsE3)
+- [Matematica](https://chat.whatsapp.com/GuEBdTPTyWtJQvR2ggM6Qb)
 - [Matematica per la finanza e l’assicurazione](https://chat.whatsapp.com/FoTacr77TOVK6cw6t725OB)
 - [Mediazione linguistica](https://t.me/+temM4IKwqYA3NmQ0) (TG) 🔴
     - [Mediazione linguistica](https://chat.whatsapp.com/ItKXLjF6EbkJbs2AHfIuPU) 🔴
@@ -82,10 +82,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
 - [Scienze e tecniche psicologiche](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) (TG) 🔴
     - [Scienze e tecniche psicologiche](https://chat.whatsapp.com/EuHerEiZriSGiFoouLFoWe) 🔴
-- [Scienze internazionali, dello sviluppo e della coopoerazione](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT) 
+- [Scienze internazionali, dello sviluppo e della coopoerazione](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT)
+- [Scienze naturali](https://t.me/+qhgn35usIEkxZGE0)
 - [Scienze pedagogiche](https://t.me/+L6HD9hGgtV02OWJk) (TG)
 - [Scienze politiche](https://chat.whatsapp.com/GDcaiQaEdds5XIA8tnMiAl) 🔴
-    - [Scienze politiche](https://chat.whatsapp.com/Lqt6m4Ix23i12ZH9X8F0pD) 🔴
+    - [Scienze politiche](https://chat.whatsapp.com/Lqt6m4Ix23i12ZH9X8F0pD) 🔴4
+    - [Scienze politiche A-L](https://chat.whatsapp.com/GNg7DpYmXEd1v417B10mQx)
 - [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8) 🔴
     - [Scienze strategiche](https://chat.whatsapp.com/B9atbOOyirqFEL2oUBsTqx) 🔴
 - [Scienze viticole ed enologiche](https://t.me/+4sQkRSZI9mM2YWQ0) (TG)
@@ -172,6 +174,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**15/09/22 |** Aggiunti gruppi per **Matematica (aggiornato), Scienze politiche (A-L), Scienze naturali**<br>
 >**09/09/22 |** Aggiunti gruppi per **Business and management (aggiornato), Economia e management**<br>
 >**07/09/22 |** Aggiunti gruppi per **Psicologia forense + test, Scienze viticole ed enologiche, Geologia, Storia (nuovo), Magistrale ICT, European legal studies**<br>
 >**06/09/22 |** Aggiunti gruppi per **Monitoraggio ambientale, tutela e ripristino, Amministrazione aziendale, Programmazione e gestione dei servizi educativi e formativi, Lettere moderne, Lingue e culture per il turismo**<br>
