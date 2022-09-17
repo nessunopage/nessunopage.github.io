@@ -96,6 +96,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Servizio sociale](https://chat.whatsapp.com/KQcCDGK6Y0t5sq04i5zzKk) 🔴
     - [Servizio sociale](https://chat.whatsapp.com/HtGXFDkD6iEEqekg7PFqke) (Biella)
 - [Storia](https://t.me/storiaunito) (TG)
+- [Tecniche di laboratorio biomedico](https://t.me/tsbl2022) (TG)
 
 
 <br>
@@ -112,6 +113,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture moderne comparate](https://chat.whatsapp.com/GLPjUMf9im0A9I6hAi4Qfp)
 - [Economia dell'ambiente, della cultura e del territorio](https://chat.whatsapp.com/EkqrHeYusw93lD2DSrh64V)
 - [Economia e management internazionale](https://t.me/economiaemanagementinternazional) (TG)
+- [Economia organizzazione e management](https://t.me/+iuQ8tLk0oBwwZjk8) (TG)
 - [European legal studies](https://t.me/EULegalStudies) (TG)
 - [Filologia, Letterature e Storia dell'antichità](https://chat.whatsapp.com/FWaxkOrNI2aGceZ93G30D1)
 - [Filosofia](https://t.me/+0KzGft82VFIzZjE8) (TG) 🔴
@@ -174,6 +176,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**17/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico, Economia organizzazione e management**<br>
 >**15/09/22 |** Aggiunti gruppi per **Matematica (aggiornato), Scienze politiche (A-L), Scienze naturali**<br>
 >**09/09/22 |** Aggiunti gruppi per **Business and management (aggiornato), Economia e management**<br>
 >**07/09/22 |** Aggiunti gruppi per **Psicologia forense + test, Scienze viticole ed enologiche, Geologia, Storia (nuovo), Magistrale ICT, European legal studies**<br>
