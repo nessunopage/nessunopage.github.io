@@ -83,7 +83,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
 - [Scienze e tecniche psicologiche](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) (TG) 🔴
     - [Scienze e tecniche psicologiche](https://chat.whatsapp.com/EuHerEiZriSGiFoouLFoWe) 🔴
-- [Scienze internazionali, dello sviluppo e della coopoerazione](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT)
+- [Scienze internazionali, dello sviluppo e della coopoerazione (SISCO)](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT)
+    - [Gruppo A-L](https://chat.whatsapp.com/LlFAlNfQxWK9cepRdxd2Xw)
+    - [Gruppo M-Z](https://chat.whatsapp.com/IKzYNgNfCBh74i2ZYB6ycj)
 - [Scienze naturali](https://t.me/+qhgn35usIEkxZGE0)
 - [Scienze pedagogiche](https://t.me/+L6HD9hGgtV02OWJk) (TG)
 - [Scienze politiche](https://chat.whatsapp.com/GDcaiQaEdds5XIA8tnMiAl) 🔴
@@ -177,7 +179,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**19/09/22 |** Aggiunti gruppo per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione)**<br>
+>**19/09/22 |** Aggiunti gruppo per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione), SISCO Gruppi A-L & M-Z**<br>
 >**17/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico, Economia organizzazione e management**<br>
 >**15/09/22 |** Aggiunti gruppi per **Matematica (aggiornato), Scienze politiche (A-L), Scienze naturali**<br>
 >**09/09/22 |** Aggiunti gruppi per **Business and management (aggiornato), Economia e management**<br>
