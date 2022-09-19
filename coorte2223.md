@@ -96,7 +96,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Servizio sociale](https://chat.whatsapp.com/KQcCDGK6Y0t5sq04i5zzKk) 🔴
     - [Servizio sociale](https://chat.whatsapp.com/HtGXFDkD6iEEqekg7PFqke) (Biella)
 - [Storia](https://t.me/storiaunito) (TG)
-- [Tecniche di laboratorio biomedico](https://t.me/tsbl2022) (TG)
+- [Tecniche di laboratorio biomedico](https://t.me/+uxTL6C33GR43Mzlk) (TG)
 
 
 <br>
@@ -176,6 +176,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**19/09/22 |** Aggiunto gruppo per **Tecniche di laboratorio biomedico (aggiornato)**<br>
 >**17/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico, Economia organizzazione e management**<br>
 >**15/09/22 |** Aggiunti gruppi per **Matematica (aggiornato), Scienze politiche (A-L), Scienze naturali**<br>
 >**09/09/22 |** Aggiunti gruppi per **Business and management (aggiornato), Economia e management**<br>
