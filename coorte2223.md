@@ -38,7 +38,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
 - [Beni culturali](https://chat.whatsapp.com/GSUd5CZlSTY3o5WTMVedjW)
 - [Biotecnologie](https://chat.whatsapp.com/KqOAJyIEIGiAVC3F0GqzfN)
-- [Business and management](https://t.me/businessandmanagement2223) (TG)
+- [Business and management](https://t.me/businessandmanagement2223) (TG) 🔴
+    - [Business and management](https://chat.whatsapp.com/IJg0d4mNTOR2pmfseiKwPK) 🔴
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
 - [Economia](https://chat.whatsapp.com/KLHti2PG7Eq3PTZ7w1YapV)
@@ -176,7 +177,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**19/09/22 |** Aggiunto gruppo per **Tecniche di laboratorio biomedico (aggiornato)**<br>
+>**19/09/22 |** Aggiunti gruppo per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione)**<br>
 >**17/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico, Economia organizzazione e management**<br>
 >**15/09/22 |** Aggiunti gruppi per **Matematica (aggiornato), Scienze politiche (A-L), Scienze naturali**<br>
 >**09/09/22 |** Aggiunti gruppi per **Business and management (aggiornato), Economia e management**<br>
