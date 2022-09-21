@@ -52,7 +52,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
     - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
 - [Filosofia](https://t.me/filosofia22_23) (TG)
-- [Geologia](https://t.me/unito_geologia) (TG)
+- [Geologia](https://t.me/+kwEFN-SAZ6w4YzI0) (TG)
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
 - [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
@@ -108,6 +108,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for International Cooperation](https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE)
+- [Biologia dell'ambiente](https://chat.whatsapp.com/FNu75OgNOvLBMA1GUpHiB2)
 - [Business administration](https://chat.whatsapp.com/IlniZ6WJzl3E8jSAI54yLm)
 - [CAM](https://chat.whatsapp.com/Lc0Kd19EeJBCiKOmiS30Be)
 - [Comunicazione e culture dei media](https://chat.whatsapp.com/JWFZCIEQaX6DEVrS17Bq4i)
@@ -179,7 +180,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**19/09/22 |** Aggiunti gruppo per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione), SISCO Gruppi A-L & M-Z**<br>
+>**21/09/22 |** Aggiunti gruppi per **Geologia (aggiornato), Biologia dell'ambiente**<br>
+>**19/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione), SISCO Gruppi A-L & M-Z**<br>
 >**17/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico, Economia organizzazione e management**<br>
 >**15/09/22 |** Aggiunti gruppi per **Matematica (aggiornato), Scienze politiche (A-L), Scienze naturali**<br>
 >**09/09/22 |** Aggiunti gruppi per **Business and management (aggiornato), Economia e management**<br>
