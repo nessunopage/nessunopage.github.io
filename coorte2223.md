@@ -45,7 +45,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia](https://chat.whatsapp.com/KLHti2PG7Eq3PTZ7w1YapV)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
-    - [Corso B](https://chat.whatsapp.com/FAHy3LhkJC1LgUBE3qLq5f)
+    - [Corso B](https://chat.whatsapp.com/FCFwCapRzkh2aRd0QZbOH2)
     - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
     - [Cuneo](https://chat.whatsapp.com/EBzsZVbxwdD1IP6x3xL5Hk)
 - [Economia e management](https://t.me/economiaemanagementunito) (TG)
@@ -78,7 +78,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/K0fNXdYWwMW58dz6DRHvIF)
 - [Scienze dell'educazione](https://t.me/eduscienzto) (TG) 🔴
     - [Scienze dell'educazione](https://chat.whatsapp.com/FDWEFf2zmSeBb4k8vg8Gcf) 🔴
-- [Scienze della comunicazione](https://chat.whatsapp.com/LFUxIm5bM8f7eH8uCYIHXx)
+- [Scienze della comunicazione](https://chat.whatsapp.com/LFUxIm5bM8f7eH8uCYIHXx) (FULL)
+    - [Scienze della comunicazione](https://chat.whatsapp.com/G5dSE18jrBH7G4ERTJv9Rn)
 - [Scienze della formazione primaria (Savigliano)](https://chat.whatsapp.com/ELr98Fm6wNG7ihaTpn8yx7)
 - [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
 - [Scienze e tecniche psicologiche](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) (TG) 🔴
@@ -180,6 +181,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**26/09/22 |** Aggiunti gruppi per **Scienze della comunicazione, Economia Aziendale B (aggiornato)**<br>
 >**21/09/22 |** Aggiunti gruppi per **Geologia (aggiornato), Biologia dell'ambiente**<br>
 >**19/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione), SISCO Gruppi A-L & M-Z**<br>
 >**17/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico, Economia organizzazione e management**<br>
