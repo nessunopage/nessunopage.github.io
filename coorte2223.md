@@ -113,6 +113,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Business administration](https://chat.whatsapp.com/IlniZ6WJzl3E8jSAI54yLm)
 - [CAM](https://chat.whatsapp.com/Lc0Kd19EeJBCiKOmiS30Be)
 - [Comunicazione e culture dei media](https://chat.whatsapp.com/JWFZCIEQaX6DEVrS17Bq4i)
+- [Comunicazione ICT e media](https://chat.whatsapp.com/GuZpDKX6v8v9uy2kq8TTOe)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/IelVvP4nAUR2ToIbDYszeq) 🔴
     - [Comunicazione pubblica e politica](https://chat.whatsapp.com/KFgAamX7zmNEUATd567izY) 🔴
 - [Culture moderne comparate](https://chat.whatsapp.com/GLPjUMf9im0A9I6hAi4Qfp)
@@ -181,7 +182,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**26/09/22 |** Aggiunti gruppi per **Scienze della comunicazione, Economia Aziendale B (aggiornato)**<br>
+>**26/09/22 |** Aggiunti gruppi per **Scienze della comunicazione, Economia Aziendale B (aggiornato), Comunicazione ICT e media**<br>
 >**21/09/22 |** Aggiunti gruppi per **Geologia (aggiornato), Biologia dell'ambiente**<br>
 >**19/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione), SISCO Gruppi A-L & M-Z**<br>
 >**17/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico, Economia organizzazione e management**<br>
