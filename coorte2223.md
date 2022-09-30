@@ -87,7 +87,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze internazionali, dello sviluppo e della coopoerazione (SISCO)](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT)
     - [Gruppo A-L](https://chat.whatsapp.com/LlFAlNfQxWK9cepRdxd2Xw)
     - [Gruppo M-Z](https://chat.whatsapp.com/IKzYNgNfCBh74i2ZYB6ycj)
-- [Scienze naturali](https://t.me/+qhgn35usIEkxZGE0)
+- [Scienze motorie](https://chat.whatsapp.com/Ko7cO9n5iNZ4LQaD3Cb2KH)
+- [Scienze naturali](https://t.me/SNUnito)
 - [Scienze pedagogiche](https://t.me/+L6HD9hGgtV02OWJk) (TG)
 - [Scienze politiche](https://chat.whatsapp.com/GDcaiQaEdds5XIA8tnMiAl) 🔴
     - [Scienze politiche](https://chat.whatsapp.com/Lqt6m4Ix23i12ZH9X8F0pD) 🔴4
@@ -110,8 +111,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for International Cooperation](https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE)
 - [Biologia dell'ambiente](https://chat.whatsapp.com/FNu75OgNOvLBMA1GUpHiB2)
+- [Biotecnologie mediche](https://chat.whatsapp.com/JXHExxLHqVa1MwXmlu0NAD)
 - [Business administration](https://chat.whatsapp.com/IlniZ6WJzl3E8jSAI54yLm)
 - [CAM](https://chat.whatsapp.com/Lc0Kd19EeJBCiKOmiS30Be)
+- [Chimica clinica, forense e dello sport](https://chat.whatsapp.com/GxKBx6yMRZoHmEPkd9fAuc)
 - [Comunicazione e culture dei media](https://chat.whatsapp.com/JWFZCIEQaX6DEVrS17Bq4i)
 - [Comunicazione ICT e media](https://chat.whatsapp.com/GuZpDKX6v8v9uy2kq8TTOe)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/IelVvP4nAUR2ToIbDYszeq) 🔴
@@ -153,6 +156,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea a Ciclo Unico 🔷**
 
 - [Farmacia - Chimica e tecnologie farmaceutiche](https://chat.whatsapp.com/EyyBbqikq3cFuo8kjYe66T)
+- [Medicina](https://t.me/+duHqXx3FknZhNGU0) (TG)
+- [Medicine and surgery](https://t.me/+PFAe58GkM35mZjg8) (TG)
 - [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
     - [Cuneo](https://chat.whatsapp.com/Fh6RCrMphLv6fNWEqzsf5i)
 
@@ -182,6 +187,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+
+>**30/09/22 |** Aggiunti gruppi per **Biotecnologie mediche, Chimica clinica, forense e dello sport, Scienze motorie, Scienze naturali (aggiornato), Medicina, Medicine and surgery**<br>
 >**26/09/22 |** Aggiunti gruppi per **Scienze della comunicazione, Economia Aziendale B (aggiornato), Comunicazione ICT e media**<br>
 >**21/09/22 |** Aggiunti gruppi per **Geologia (aggiornato), Biologia dell'ambiente**<br>
 >**19/09/22 |** Aggiunti gruppi per **Tecniche di laboratorio biomedico (aggiornato), Business and management (doppione), SISCO Gruppi A-L & M-Z**<br>
