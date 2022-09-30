@@ -157,7 +157,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Farmacia - Chimica e tecnologie farmaceutiche](https://chat.whatsapp.com/EyyBbqikq3cFuo8kjYe66T)
 - [Medicina](https://t.me/+duHqXx3FknZhNGU0) (TG)
-- [Medicine and surgery](https://t.me/+PFAe58GkM35mZjg8) (TG)
+- [Medicine and surgery](https://chat.whatsapp.com/BAhIBCRqcfKLBM0H4T0HDp)
 - [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
     - [Cuneo](https://chat.whatsapp.com/Fh6RCrMphLv6fNWEqzsf5i)
 
