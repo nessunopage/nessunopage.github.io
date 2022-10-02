@@ -91,12 +91,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Gruppo A-L](https://chat.whatsapp.com/LlFAlNfQxWK9cepRdxd2Xw)
     - [Gruppo M-Z](https://chat.whatsapp.com/IKzYNgNfCBh74i2ZYB6ycj)
 - [Scienze motorie](https://chat.whatsapp.com/Ko7cO9n5iNZ4LQaD3Cb2KH)
-    - [Scienze motorie (Asti)](https://chat.whatsapp.com/HKdJQKOLOWiFVtfhm3c7oi) 🔴
-    - [Scienze motorie (Asti)](https://chat.whatsapp.com/ElpzUlE0kwULRpWve6Nzax) 🔴
+    - [Scienze motorie (Asti)](https://chat.whatsapp.com/ElpzUlE0kwULRpWve6Nzax)
 - [Scienze naturali](https://t.me/SNUnito)
 - [Scienze pedagogiche](https://t.me/+L6HD9hGgtV02OWJk) (TG)
 - [Scienze politiche](https://chat.whatsapp.com/GDcaiQaEdds5XIA8tnMiAl) 🔴
-    - [Scienze politiche](https://chat.whatsapp.com/Lqt6m4Ix23i12ZH9X8F0pD) 🔴4
+    - [Scienze politiche](https://chat.whatsapp.com/Lqt6m4Ix23i12ZH9X8F0pD) 🔴
     - [Scienze politiche A-L](https://chat.whatsapp.com/GNg7DpYmXEd1v417B10mQx)
 - [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8) 🔴
     - [Scienze strategiche](https://chat.whatsapp.com/B9atbOOyirqFEL2oUBsTqx) 🔴
