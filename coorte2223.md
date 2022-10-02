@@ -71,10 +71,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Matematica per la finanza e l’assicurazione](https://chat.whatsapp.com/FoTacr77TOVK6cw6t725OB)
 - [Mediazione linguistica](https://t.me/+temM4IKwqYA3NmQ0) (TG) 🔴
     - [Mediazione linguistica](https://chat.whatsapp.com/ItKXLjF6EbkJbs2AHfIuPU) 🔴
+- [Medicina veterinaria](https://chat.whatsapp.com/BDhMvD5eZ4QG4JK0y67oMd)
 - [Politiche e servizi sociali](https://chat.whatsapp.com/JPIhQg2Oyz7GGMIr6sSoiD)
 - [Produzioni e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/BdoWYwHCARbB2o7B50v9wU)
 - [Scienze biologiche](https://t.me/+d8tQ2CQ5cDViYTM0) (TG)
-- [Scienze e tecniche agrarie](https://chat.whatsapp.com/DW3TRD4zdkY0XrZA4kgK9y)
 - [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/K0fNXdYWwMW58dz6DRHvIF)
 - [Scienze dell'educazione](https://t.me/eduscienzto) (TG) 🔴
     - [Scienze dell'educazione](https://chat.whatsapp.com/FDWEFf2zmSeBb4k8vg8Gcf) 🔴
@@ -82,12 +82,17 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Scienze della comunicazione](https://chat.whatsapp.com/G5dSE18jrBH7G4ERTJv9Rn)
 - [Scienze della formazione primaria (Savigliano)](https://chat.whatsapp.com/ELr98Fm6wNG7ihaTpn8yx7)
 - [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
+- [Scienze e tecniche agrarie](https://chat.whatsapp.com/DW3TRD4zdkY0XrZA4kgK9y)
 - [Scienze e tecniche psicologiche](https://t.me/joinchat/hMNXLXaHH1Y1Mjdk) (TG) 🔴
     - [Scienze e tecniche psicologiche](https://chat.whatsapp.com/EuHerEiZriSGiFoouLFoWe) 🔴
+    - [Gruppo B](https://chat.whatsapp.com/KMpXtSlW62e75yIrcwDkX2)
+    - [Gruppo C](https://chat.whatsapp.com/HQ5poOppypRE9qJVUre2xT)
 - [Scienze internazionali, dello sviluppo e della coopoerazione (SISCO)](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT)
     - [Gruppo A-L](https://chat.whatsapp.com/LlFAlNfQxWK9cepRdxd2Xw)
     - [Gruppo M-Z](https://chat.whatsapp.com/IKzYNgNfCBh74i2ZYB6ycj)
 - [Scienze motorie](https://chat.whatsapp.com/Ko7cO9n5iNZ4LQaD3Cb2KH)
+    - [Scienze motorie (Asti)](https://chat.whatsapp.com/HKdJQKOLOWiFVtfhm3c7oi) 🔴
+    - [Scienze motorie (Asti)](https://chat.whatsapp.com/ElpzUlE0kwULRpWve6Nzax) 🔴
 - [Scienze naturali](https://t.me/SNUnito)
 - [Scienze pedagogiche](https://t.me/+L6HD9hGgtV02OWJk) (TG)
 - [Scienze politiche](https://chat.whatsapp.com/GDcaiQaEdds5XIA8tnMiAl) 🔴
@@ -111,6 +116,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for International Cooperation](https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE)
 - [Biologia dell'ambiente](https://chat.whatsapp.com/FNu75OgNOvLBMA1GUpHiB2)
+- [Biotecnologie industriali](https://chat.whatsapp.com/JLkro62bs4BF13ztOuhj89)
 - [Biotecnologie mediche](https://chat.whatsapp.com/JXHExxLHqVa1MwXmlu0NAD)
 - [Business administration](https://chat.whatsapp.com/IlniZ6WJzl3E8jSAI54yLm)
 - [CAM](https://chat.whatsapp.com/Lc0Kd19EeJBCiKOmiS30Be)
@@ -157,6 +163,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Farmacia - Chimica e tecnologie farmaceutiche](https://chat.whatsapp.com/EyyBbqikq3cFuo8kjYe66T)
 - [Medicina](https://t.me/+duHqXx3FknZhNGU0) (TG)
+    - [Canale A](https://chat.whatsapp.com/HcNuTBYGUIwEJnpgzuO8dx)
+    - [Canale B](http://chat.whatsapp.com/JOnig5ZsVRLCGY5IJ06x80)
+    - [Canale C](http://chat.whatsapp.com/EH3y1c7fKXw3bOJgYcXHso)
+    - [Canale D](https://chat.whatsapp.com/C22voOqfmVTIP318El1ZCc)
+
 - [Medicine and surgery](https://chat.whatsapp.com/BAhIBCRqcfKLBM0H4T0HDp)
 - [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
     - [Cuneo](https://chat.whatsapp.com/Fh6RCrMphLv6fNWEqzsf5i)
@@ -187,7 +198,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
-
+>**02/10/22 |** Aggiunti gruppi per **Scienze motorie (Asti), Medicina veterinaria, Medicina (Canali A, B, C, D), Biotecnologie industriali, Scienze e tecniche psicologiche (Gruppi B, C)**<br>
 >**30/09/22 |** Aggiunti gruppi per **Biotecnologie mediche, Chimica clinica, forense e dello sport, Scienze motorie, Scienze naturali (aggiornato), Medicina, Medicine and surgery**<br>
 >**26/09/22 |** Aggiunti gruppi per **Scienze della comunicazione, Economia Aziendale B (aggiornato), Comunicazione ICT e media**<br>
 >**21/09/22 |** Aggiunti gruppi per **Geologia (aggiornato), Biologia dell'ambiente**<br>
