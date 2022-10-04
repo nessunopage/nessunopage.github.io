@@ -78,8 +78,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/K0fNXdYWwMW58dz6DRHvIF)
 - [Scienze dell'educazione](https://t.me/eduscienzto) (TG) 🔴
     - [Scienze dell'educazione](https://chat.whatsapp.com/FDWEFf2zmSeBb4k8vg8Gcf) 🔴
-- [Scienze della comunicazione](https://chat.whatsapp.com/LFUxIm5bM8f7eH8uCYIHXx) (FULL)
-    - [Scienze della comunicazione](https://chat.whatsapp.com/G5dSE18jrBH7G4ERTJv9Rn)
+- [Scienze della comunicazione](https://chat.whatsapp.com/EqS9q3t5a78BMLVwjmeQvC) (FULL)
+    - [Scienze della comunicazione](https://chat.whatsapp.com/CVYRpQWDRK2E3rjdVfo8Ga)
 - [Scienze della formazione primaria (Savigliano)](https://chat.whatsapp.com/ELr98Fm6wNG7ihaTpn8yx7)
 - [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
 - [Scienze e tecniche agrarie](https://chat.whatsapp.com/DW3TRD4zdkY0XrZA4kgK9y)
