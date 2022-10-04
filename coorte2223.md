@@ -3,7 +3,7 @@
 ![logo](https://imgur.com/0j40uci.jpg)
 
 
-> Lista dei **gruppi matricole** conosciuti per i **Corsi di Laurea dell'Università di Torino** (**per immatricolati nel 2022/23**).<br><br>
+> Lista dei **gruppi matricole** conosciuti per i **Corsi di Laura dell'Università di Torino** (**per immatricolati nel 2022/23**).<br><br>
 
 ### ⚠️ **<span style="color:red">ATTENZIONE</span>** ⚠️:  **Non sono stati segnalati e non ho a disposizione altri link di gruppi al momento.** Nel caso di **eventuali nuovi link** questa pagina verrà **aggiornata**. **Non gestisco direttamente i gruppi!**<br><br>
 
@@ -26,7 +26,7 @@
 
 Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**_ per Telegram o _**(FB)**_ per Facebook.
 
-**🔷 Laurea Triennale 🔷**
+**🔷 laura Triennale 🔷**
 
 - [Amministrazione aziendale](https://chat.whatsapp.com/Jo6mf05s5E23PvVAtOCh5Z)
 - [Chimica](https://t.me/+TABpqM3PMDY3NGY0) (TG)
@@ -110,7 +110,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 <br>
 
-**🔶 Laurea Magistrale 🔶**
+**🔶 laura Magistrale 🔶**
 
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for International Cooperation](https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE)
@@ -158,7 +158,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 <br>
 
-**🔷 Laurea a Ciclo Unico 🔷**
+**🔷 laura a Ciclo Unico 🔷**
 
 - [Farmacia - Chimica e tecnologie farmaceutiche](https://chat.whatsapp.com/EyyBbqikq3cFuo8kjYe66T)
 - [Medicina](https://t.me/+duHqXx3FknZhNGU0) (TG)
@@ -197,6 +197,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**04/10/22 |** Aggiornati gruppi per **Scienze della comunicazione**<br>
 >**02/10/22 |** Aggiunti gruppi per **Scienze motorie (Asti), Medicina veterinaria, Medicina (Canali A, B, C, D), Biotecnologie industriali, Scienze e tecniche psicologiche (Gruppi B, C)**<br>
 >**30/09/22 |** Aggiunti gruppi per **Biotecnologie mediche, Chimica clinica, forense e dello sport, Scienze motorie, Scienze naturali (aggiornato), Medicina, Medicine and surgery**<br>
 >**26/09/22 |** Aggiunti gruppi per **Scienze della comunicazione, Economia Aziendale B (aggiornato), Comunicazione ICT e media**<br>
