@@ -75,7 +75,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Politiche e servizi sociali](https://chat.whatsapp.com/JPIhQg2Oyz7GGMIr6sSoiD)
 - [Produzioni e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/BdoWYwHCARbB2o7B50v9wU)
 - [Scienze biologiche](https://t.me/+d8tQ2CQ5cDViYTM0) (TG)
-- [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/K0fNXdYWwMW58dz6DRHvIF)
 - [Scienze dell'educazione](https://t.me/eduscienzto) (TG) 🔴
     - [Scienze dell'educazione](https://chat.whatsapp.com/FDWEFf2zmSeBb4k8vg8Gcf) 🔴
 - [Scienze della comunicazione](https://chat.whatsapp.com/EqS9q3t5a78BMLVwjmeQvC) (FULL)
