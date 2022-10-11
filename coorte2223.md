@@ -41,7 +41,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Business and management](https://t.me/businessandmanagement2223) (TG) 🔴
     - [Business and management](https://chat.whatsapp.com/IJg0d4mNTOR2pmfseiKwPK) 🔴
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
-- [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/HZWLYag5sC1ExjZmzan6yl)
+- [Diritto per le imprese e delle istituzioni](https://chat.whatsapp.com/HZWLYag5sC1ExjZmzan6yl)
 - [Economia](https://chat.whatsapp.com/KLHti2PG7Eq3PTZ7w1YapV)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
@@ -199,7 +199,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**11/10/22 |** Aggiunti gruppi per **Enologia e viticoltura, Odontoiatria, Logopedia, Fisioterapia, Diritto delle imprese e delle istituzioni (aggiornato)**<br>
+>**11/10/22 |** Aggiunti gruppi per **Enologia e viticoltura, Odontoiatria, Logopedia, Fisioterapia, Diritto per le imprese e delle istituzioni (aggiornato)**<br>
 >**04/10/22 |** Aggiornati gruppi per **Scienze della comunicazione**<br>
 >**02/10/22 |** Aggiunti gruppi per **Scienze motorie (Asti), Medicina veterinaria, Medicina (Canali A, B, C, D), Biotecnologie industriali, Scienze e tecniche psicologiche (Gruppi B, C)**<br>
 >**30/09/22 |** Aggiunti gruppi per **Biotecnologie mediche, Chimica clinica, forense e dello sport, Scienze motorie, Scienze naturali (aggiornato), Medicina, Medicine and surgery**<br>
