@@ -41,7 +41,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Business and management](https://t.me/businessandmanagement2223) (TG) 🔴
     - [Business and management](https://chat.whatsapp.com/IJg0d4mNTOR2pmfseiKwPK) 🔴
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
-- [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/LOaF1GaF1orKUQDATOPhXf)
+- [Diritto delle imprese e delle istituzioni](https://chat.whatsapp.com/HZWLYag5sC1ExjZmzan6yl)
 - [Economia](https://chat.whatsapp.com/KLHti2PG7Eq3PTZ7w1YapV)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
@@ -51,12 +51,14 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia e management](https://t.me/economiaemanagementunito) (TG)
 - [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
     - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
+- [Enologia e viticoltura](https://chat.whatsapp.com/KaS0mSE7XyLB1PwR38KAzI)
 - [Filosofia](https://t.me/filosofia22_23) (TG)
 - [Geologia](https://t.me/+kwEFN-SAZ6w4YzI0) (TG)
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
 - [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
+- [Fisioterapia](https://chat.whatsapp.com/GIa2VtJ0LylGU0zSZm0DI9)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
-    - [Informatica](https://bit.ly/3A2N5nR) (Raccolta gruppi)
+    - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [ICT](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO) 🔴
     - [ICT](https://chat.whatsapp.com/CqNJR7lbsmd72YnmTJnAUV) 🔴
 - [Infiermeristica](https://t.me/matricoleunito1) (TG)
@@ -66,6 +68,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e culture per il turismo](https://t.me/+o3YFFrfAlk9hMTNk) (TG)
 - [Lingue e letterature moderne](https://t.me/+aLFIa5kSVaQ5OTQ8) (TG) 🔴
     - [Lingue e letterature moderne](https://chat.whatsapp.com/LpCuXf61ItxIoolN0EUmnn) 🔴
+- [Logopedia](https://chat.whatsapp.com/I8oc6GdpKOv0aHrhxHGzhC)
 - [Management dell'Informazione e della Comunicazione Aziendale](https://chat.whatsapp.com/Es1UaUfZ7GN1h0J7YUs5Ko)
 - [Matematica](https://chat.whatsapp.com/GuEBdTPTyWtJQvR2ggM6Qb)
 - [Matematica per la finanza e l’assicurazione](https://chat.whatsapp.com/FoTacr77TOVK6cw6t725OB)
@@ -165,10 +168,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Canale B](http://chat.whatsapp.com/JOnig5ZsVRLCGY5IJ06x80)
     - [Canale C](http://chat.whatsapp.com/EH3y1c7fKXw3bOJgYcXHso)
     - [Canale D](https://chat.whatsapp.com/C22voOqfmVTIP318El1ZCc)
-
 - [Medicine and surgery](https://chat.whatsapp.com/BAhIBCRqcfKLBM0H4T0HDp)
 - [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
     - [Cuneo](https://chat.whatsapp.com/Fh6RCrMphLv6fNWEqzsf5i)
+- [Odontoiatria](https://chat.whatsapp.com/I6HGbdZjQaLA0IW6HVfmzN)
 
 
 
@@ -196,6 +199,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**11/10/22 |** Aggiunti gruppi per **Enologia e viticoltura, Odontoiatria, Logopedia, Fisioterapia, Diritto delle imprese e delle istituzioni (aggiornato)**<br>
 >**04/10/22 |** Aggiornati gruppi per **Scienze della comunicazione**<br>
 >**02/10/22 |** Aggiunti gruppi per **Scienze motorie (Asti), Medicina veterinaria, Medicina (Canali A, B, C, D), Biotecnologie industriali, Scienze e tecniche psicologiche (Gruppi B, C)**<br>
 >**30/09/22 |** Aggiunti gruppi per **Biotecnologie mediche, Chimica clinica, forense e dello sport, Scienze motorie, Scienze naturali (aggiornato), Medicina, Medicine and surgery**<br>
