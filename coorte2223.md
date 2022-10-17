@@ -26,7 +26,7 @@
 
 Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**_ per Telegram o _**(FB)**_ per Facebook.
 
-**🔷 laura Triennale 🔷**
+**🔷 Laurea Triennale 🔷**
 
 - [Amministrazione aziendale](https://chat.whatsapp.com/Jo6mf05s5E23PvVAtOCh5Z)
 - [Chimica](https://t.me/+TABpqM3PMDY3NGY0) (TG)
@@ -34,7 +34,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Gruppo B](https://chat.whatsapp.com/E8ovvIW5Mlg7qtua9rL4Bi) (Cognomi L-Z)
 - [Comunicazione interculturale](https://t.me/+UiJxF1hdPTYwN2Q0) (TG)
     - [Comunicazione interculturale](https://chat.whatsapp.com/K2Af6z9gUCU63OCwuZDnfx) 
-- [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/Lj1L1ixAuuWI5GijWYizyP)
+- [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/H6vJFS8VcxsCGfxNzBlpet)
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
 - [Beni culturali](https://chat.whatsapp.com/GSUd5CZlSTY3o5WTMVedjW)
 - [Biotecnologie](https://chat.whatsapp.com/KqOAJyIEIGiAVC3F0GqzfN)
@@ -75,6 +75,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Mediazione linguistica](https://t.me/+temM4IKwqYA3NmQ0) (TG) 🔴
     - [Mediazione linguistica](https://chat.whatsapp.com/ItKXLjF6EbkJbs2AHfIuPU) 🔴
 - [Medicina veterinaria](https://chat.whatsapp.com/BDhMvD5eZ4QG4JK0y67oMd)
+- [Ostetricia](https://t.me/+5kM1dychYyY4ZTY0) (TG)
 - [Politiche e servizi sociali](https://chat.whatsapp.com/JPIhQg2Oyz7GGMIr6sSoiD)
 - [Produzioni e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/BdoWYwHCARbB2o7B50v9wU)
 - [Scienze biologiche](https://t.me/+d8tQ2CQ5cDViYTM0) (TG)
@@ -112,7 +113,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 <br>
 
-**🔶 laura Magistrale 🔶**
+**🔶 Laurea Magistrale 🔶**
 
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for International Cooperation](https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE)
@@ -144,6 +145,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Metodi statistici ed economici per le decisioni](https://chat.whatsapp.com/Iky73jj1hUGCrDwZRO3juS)
 - [Monitoraggio ambientale, tutela e ripristino](https://t.me/+jZqJ76JNjnE0NDA0) (TG)
 - [Psicologia clinica](https://t.me/+Q7fheX99NDU3ZGJk) (TG)
+- [Psicologia del lavoro](https://chat.whatsapp.com/JTLdyXOeI3GB6UNmgykVAm)
 - [Psicologia forense](https://t.me/+Y3AXqJlLQo5hMWJk) (TG)
     - [Test psicologia forense](https://chat.whatsapp.com/Ebl0yGH8mVW2YIKUqeAiPF)
 - [Programmazione e gestione dei servizi educativi e formativi](https://t.me/+70-yTBQicLE2Yjhk) (TG)
@@ -160,7 +162,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 <br>
 
-**🔷 laura a Ciclo Unico 🔷**
+**🔷 Laurea a Ciclo Unico 🔷**
 
 - [Farmacia - Chimica e tecnologie farmaceutiche](https://chat.whatsapp.com/EyyBbqikq3cFuo8kjYe66T)
 - [Medicina](https://t.me/+duHqXx3FknZhNGU0) (TG)
@@ -199,6 +201,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**17/10/22 |** Aggiunti gruppi per **Ostetricia, Psicologia del lavoro, Consulenza del lavoro e gestione delle risorse umane (aggiornato)**<br>
 >**11/10/22 |** Aggiunti gruppi per **Enologia e viticoltura, Odontoiatria, Logopedia, Fisioterapia, Diritto per le imprese e delle istituzioni (aggiornato)**<br>
 >**04/10/22 |** Aggiornati gruppi per **Scienze della comunicazione**<br>
 >**02/10/22 |** Aggiunti gruppi per **Scienze motorie (Asti), Medicina veterinaria, Medicina (Canali A, B, C, D), Biotecnologie industriali, Scienze e tecniche psicologiche (Gruppi B, C)**<br>
