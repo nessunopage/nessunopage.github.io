@@ -76,7 +76,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Mediazione linguistica](https://t.me/+temM4IKwqYA3NmQ0) (TG) 🔴
     - [Mediazione linguistica](https://chat.whatsapp.com/ItKXLjF6EbkJbs2AHfIuPU) 🔴
 - [Medicina veterinaria](https://chat.whatsapp.com/BDhMvD5eZ4QG4JK0y67oMd)
-- [Ostetricia](https://t.me/+5kM1dychYyY4ZTY0) (TG)
+- [Ostetricia](https://t.me/+5kM1dychYyY4ZTY0) (TG) 🔴
+    - [Ostetricia](https://chat.whatsapp.com/CWTcDoA5qDiL4D3ocO08wc) 🔴
 - [Politiche e servizi sociali](https://chat.whatsapp.com/JPIhQg2Oyz7GGMIr6sSoiD)
 - [Produzioni e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/BdoWYwHCARbB2o7B50v9wU)
 - [Scienze biologiche](https://t.me/+d8tQ2CQ5cDViYTM0) (TG)
@@ -91,6 +92,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Scienze e tecniche psicologiche](https://chat.whatsapp.com/EuHerEiZriSGiFoouLFoWe) 🔴
     - [Gruppo B](https://chat.whatsapp.com/KMpXtSlW62e75yIrcwDkX2)
     - [Gruppo C](https://chat.whatsapp.com/HQ5poOppypRE9qJVUre2xT)
+- [Scienze forestali](https://chat.whatsapp.com/KEgzNvqUUnr5TiCDpx25id)
 - [Scienze internazionali, dello sviluppo e della coopoerazione (SISCO)](https://chat.whatsapp.com/GndeadLHvRcHVaY3Ph8NeT)
     - [Gruppo A-L](https://chat.whatsapp.com/LlFAlNfQxWK9cepRdxd2Xw)
     - [Gruppo M-Z](https://chat.whatsapp.com/IKzYNgNfCBh74i2ZYB6ycj)
@@ -202,7 +204,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**24/10/22 |** Aggiunti gruppi per **CAM (aggiornato), Infermieristica pediatrica**<br>
+>**24/10/22 |** Aggiunti gruppi per **CAM (aggiornato), Infermieristica pediatrica, Scienze forestali, Ostetricia (doppione)**<br>
 >**17/10/22 |** Aggiunti gruppi per **Ostetricia, Psicologia del lavoro, Consulenza del lavoro e gestione delle risorse umane (aggiornato)**<br>
 >**11/10/22 |** Aggiunti gruppi per **Enologia e viticoltura, Odontoiatria, Logopedia, Fisioterapia, Diritto per le imprese e delle istituzioni (aggiornato)**<br>
 >**04/10/22 |** Aggiornati gruppi per **Scienze della comunicazione**<br>
