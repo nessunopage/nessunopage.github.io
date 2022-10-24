@@ -61,7 +61,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [ICT](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO) 🔴
     - [ICT](https://chat.whatsapp.com/CqNJR7lbsmd72YnmTJnAUV) 🔴
-- [Infiermeristica](https://t.me/matricoleunito1) (TG)
+- [Infermeristica](https://t.me/matricoleunito1) (TG)
+- [Infermieristica pediatrica](https://chat.whatsapp.com/DpoNvehHFN3KVrGrK5Hh1h)
 - [Lettere](https://t.me/+yQWFiON3hr4xYWQ0) (TG)
 - [Lettere moderne](https://chat.whatsapp.com/BqoOIrRGFeJD2wQq60piFG)
 - [Lingue e culture dell’Asia e dell’Africa](https://chat.whatsapp.com/I4feSiJM6Wk3dNgACFtE3C)
@@ -121,7 +122,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Biotecnologie industriali](https://chat.whatsapp.com/JLkro62bs4BF13ztOuhj89)
 - [Biotecnologie mediche](https://chat.whatsapp.com/JXHExxLHqVa1MwXmlu0NAD)
 - [Business administration](https://chat.whatsapp.com/IlniZ6WJzl3E8jSAI54yLm)
-- [CAM](https://chat.whatsapp.com/Lc0Kd19EeJBCiKOmiS30Be)
+- [CAM](https://chat.whatsapp.com/F4TxOmQZMDI0uD548mOJwm)
 - [Chimica clinica, forense e dello sport](https://chat.whatsapp.com/GxKBx6yMRZoHmEPkd9fAuc)
 - [Comunicazione e culture dei media](https://chat.whatsapp.com/JWFZCIEQaX6DEVrS17Bq4i)
 - [Comunicazione ICT e media](https://chat.whatsapp.com/GuZpDKX6v8v9uy2kq8TTOe)
@@ -201,6 +202,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**24/10/22 |** Aggiunti gruppi per **CAM (aggiornato), Infermieristica pediatrica**<br>
 >**17/10/22 |** Aggiunti gruppi per **Ostetricia, Psicologia del lavoro, Consulenza del lavoro e gestione delle risorse umane (aggiornato)**<br>
 >**11/10/22 |** Aggiunti gruppi per **Enologia e viticoltura, Odontoiatria, Logopedia, Fisioterapia, Diritto per le imprese e delle istituzioni (aggiornato)**<br>
 >**04/10/22 |** Aggiornati gruppi per **Scienze della comunicazione**<br>
