@@ -10,7 +10,7 @@
 >Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** usa questo [rapido form](https://rebrand.ly/form-gruppi-unito)<br><br>
 
 
-- [Coorte 2022/23](https://rebrand.ly/unito-links-23-24)
+- [Coorte 2023/24](https://rebrand.ly/unito-links-23-24)
 - [Coorte 2022/23](https://rebrand.ly/unito-links-22-23)
 - [Coorte 2021/22](https://rebrand.ly/unito-links-21-22)
 - [Coorte 2020/21](https://rebrand.ly/unito-links-20-21)
