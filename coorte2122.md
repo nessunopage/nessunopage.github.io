@@ -5,7 +5,7 @@
 
 >Lista dei **gruppi matricole** conosciuti per i **Corsi di Laurea dell'Università di Torino** (**per immatricolati nel 2021/22**).<br><br>
 >⚠️ **ATTENZIONE** ⚠️:  **Non sono stati segnalati e non ho a disposizione altri link di gruppi al momento.** Nel caso di **eventuali nuovi link** questa pagina verrà **aggiornata**. <br><br>
->Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** contatta **[@N_essuno](https://t.me/N_essuno)** (Telegram)<br><br>
+>Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** usa questo [rapido form](https://rebrand.ly/form-gruppi-unito)<br><br>
 >P.s. Per cercare un gruppo puoi usare l'opzione di "ricerca parole" del tuo browser.
 
 . . .
@@ -229,12 +229,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 >**⚠️ ATTENZIONE ⚠️**: Se vedi "🔴" significa che c'è un **gruppo doppione** (che brutto!) se fai parte di uno dei gruppi cercate di **spostarvi su uno unico** così da rendere più **comoda** la comunicazione.<br>
->Una volta fatto segnalatelo a [@N_essuno](https://t.me/N_essuno) (Telegram)
+>Una volta fatto segnalatelo usando questo [rapido form](https://rebrand.ly/form-gruppi-unito)
 
 ***
 
 >Questa raccolta è stata creata con lo scopo di facilitare la ricerca del gruppo del proprio Corso di Laurea, spero possa essere utile.<br>
->Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** contatta **[@N_essuno](https://t.me/N_essuno)** (Telegram)
+>Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** usa questo [rapido form](https://rebrand.ly/form-gruppi-unito)
 
 ***
 
