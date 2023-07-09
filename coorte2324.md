@@ -27,6 +27,7 @@
 Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**_ per Telegram o _**(FB)**_ per Facebook.
 
 **🔷 Laurea Triennale 🔷**
+- [Amministrazione aziendale](https://chat.whatsapp.com/IbRnRxJFBG5BL1EQghYEDe)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 
