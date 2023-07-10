@@ -52,6 +52,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
+- [Scienze internazionali](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
 - [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
 
 
