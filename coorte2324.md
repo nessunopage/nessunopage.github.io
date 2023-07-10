@@ -27,7 +27,7 @@
 Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**_ per Telegram o _**(FB)**_ per Facebook.
 
 **🔷 Laurea Triennale 🔷**
-- [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
+
 - [Amministrazione aziendale](https://chat.whatsapp.com/IbRnRxJFBG5BL1EQghYEDe)
 - [Comunicazione interculturale](https://chat.whatsapp.com/KSsOJFhklHvAPwDt9tOZRe)
 - [Economia](https://t.me/+opZjJM8RF3A2NGY0) (TG)
@@ -49,6 +49,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Laurea Magistrale 🔶**
 
+- [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
 - [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
