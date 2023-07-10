@@ -27,20 +27,38 @@
 Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**_ per Telegram o _**(FB)**_ per Facebook.
 
 **🔷 Laurea Triennale 🔷**
+- [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
 - [Amministrazione aziendale](https://chat.whatsapp.com/IbRnRxJFBG5BL1EQghYEDe)
+- [Comunicazione interculturale](https://chat.whatsapp.com/KSsOJFhklHvAPwDt9tOZRe)
+- [Economia](https://t.me/+opZjJM8RF3A2NGY0) (TG)
+- [Filosofia](https://t.me/filosofia_unito) (TG)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
+- [Innovazione sociale, comunicazione, nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
+- [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
+- [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
+- [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ)
+- [Scienze internazionali](https://chat.whatsapp.com/LT2I5XmLX52JdyW6FlKvJj)
+- [Scienze politiche](https://chat.whatsapp.com/FjuoMcAu2NYBI8uShZrLoA)
+- [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8)
+
+
 
 
 <br>
 
 **🔶 Laurea Magistrale 🔶**
 
+- [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
+- [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
+- [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
+
 
 
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
+- [Giurisprudenza](https://chat.whatsapp.com/Hwtcw9LMHkuDgEEd1m0Cl3)
 
 
 
@@ -50,6 +68,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Altri gruppi 🔶**
 
+- [Dipartimento CPS](https://t.me/+_oorPbeoxTE0M2I0) (TG)
 - [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
 - [Fisica Discord](https://discord.gg/gmxv5vS6)
 - [Mediatore digitale SCIDECOM](https://t.me/digitale_scidecom_unito) (TG)
@@ -68,6 +87,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**10/07/23 |** Aggiunti gruppi per **Amministrazione aziendale, Antropologia culturale, Scienze internazionali, Innovazione sociale, comunicazione, nuove tecnologie ICT, Comunicazione interculturale, Giurisprudenza, Servizio sociale, Scienze strategiche, Scienze Politiche, Economia, Psicologia, Scienze del governo, Sociologia Dipartimento CPS, Psicologia del Lavoro e delle Organizzazioni, Lettere, Filosofia**<br>
 >**09/07/23 |** Creata raccolta<br>
 
 >**🔺 Cronologia eliminata da --/--/-- a  --/--/-- 🔺**<br>
