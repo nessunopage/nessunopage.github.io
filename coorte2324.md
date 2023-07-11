@@ -30,7 +30,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Amministrazione aziendale](https://chat.whatsapp.com/IbRnRxJFBG5BL1EQghYEDe)
 - [Comunicazione interculturale](https://chat.whatsapp.com/KSsOJFhklHvAPwDt9tOZRe)
+- [DAMS](https://t.me/+eUdeqjT4w3BjNzM0) (TG)
 - [Economia](https://t.me/+opZjJM8RF3A2NGY0) (TG)
+- [Economia aziendale](https://t.me/+J2v75VNnIAgzZTA0) (TG)
+    - [Corso A](https://t.me/+j5wID6UA5_8wNWI0) (TG)
+    - [Corso B](https://t.me/+ojW2Xqiqqk5jYjQ0) (TG)
+    - [Corso C](https://t.me/+sTLVeLdipEs3ZWU8) (TG)
+    - [Cuneo](https://t.me/+kIhHE28T-fg5YzA0) (TG)
 - [Filosofia](https://t.me/filosofia_unito) (TG)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
@@ -89,6 +95,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+
+
+
+>**11/07/23 |** Aggiunti gruppi per **Economia aziendale (generale, corsi A, B, C, Cuneo), DAMS**<br>
 >**10/07/23 |** Aggiunti gruppi per **Amministrazione aziendale, Antropologia culturale, Scienze internazionali, Innovazione sociale, comunicazione, nuove tecnologie ICT, Comunicazione interculturale, Giurisprudenza, Servizio sociale, Scienze strategiche, Scienze Politiche, Economia, Psicologia, Scienze del governo, Sociologia Dipartimento CPS, Psicologia del Lavoro e delle Organizzazioni, Lettere, Filosofia**<br>
 >**09/07/23 |** Creata raccolta<br>
 
