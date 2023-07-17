@@ -100,7 +100,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**17/07/23 |** Aggiunti gruppi per **Psicologia criminologica e forense, Scienze della comunicazione, Professioni Sanitarie, Global law, Language technologies and digital humanities, Educazione professionale**<br>
+>**17/07/23 |** Aggiunti gruppi per **Psicologia criminologica e forense, Scienze della comunicazione, Global law, Language technologies and digital humanities, Educazione professionale**<br>
 >**11/07/23 |** Aggiunti gruppi per **Economia aziendale (generale, corsi A, B, C, Cuneo), DAMS**<br>
 >**10/07/23 |** Aggiunti gruppi per **Amministrazione aziendale, Antropologia culturale, Scienze internazionali, Innovazione sociale, comunicazione, nuove tecnologie ICT, Comunicazione interculturale, Giurisprudenza, Servizio sociale, Scienze strategiche, Scienze Politiche, Economia, Psicologia, Scienze del governo, Sociologia Dipartimento CPS, Psicologia del Lavoro e delle Organizzazioni, Lettere, Filosofia**<br>
 >**09/07/23 |** Creata raccolta<br>
