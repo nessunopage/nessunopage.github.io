@@ -37,13 +37,17 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Corso B](https://t.me/+ojW2Xqiqqk5jYjQ0) (TG)
     - [Corso C](https://t.me/+sTLVeLdipEs3ZWU8) (TG)
     - [Cuneo](https://t.me/+kIhHE28T-fg5YzA0) (TG)
+- [Educazione professionale](https://chat.whatsapp.com/CjHOCk4M5SQKkGswc189Rc)
 - [Filosofia](https://t.me/filosofia_unito) (TG)
+- [Global law](https://t.me/+53AUdmg2yUNjYTZk) (TG)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [Innovazione sociale, comunicazione, nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
 - [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
 - [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
+- [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
 - [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ)
+- [Scienze della comunicazione](https://t.me/+GyIQSQfvYNw5ZGU0) (TG)
 - [Scienze internazionali](https://chat.whatsapp.com/LT2I5XmLX52JdyW6FlKvJj)
 - [Scienze politiche](https://chat.whatsapp.com/FjuoMcAu2NYBI8uShZrLoA)
 - [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8)
@@ -56,9 +60,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔶 Laurea Magistrale 🔶**
 
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
+- [Language technologies and digital humanities](https://t.me/+htvJ1GjyB2VmZDBk) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
-- [Scienze internazionali](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
+- [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
 - [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
 
 
@@ -95,9 +100,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
-
-
-
+>**17/07/23 |** Aggiunti gruppi per **Psicologia criminologica e forense, Scienze della comunicazione, Professioni Sanitarie, Global law, Language technologies and digital humanities, Educazione professionale**<br>
 >**11/07/23 |** Aggiunti gruppi per **Economia aziendale (generale, corsi A, B, C, Cuneo), DAMS**<br>
 >**10/07/23 |** Aggiunti gruppi per **Amministrazione aziendale, Antropologia culturale, Scienze internazionali, Innovazione sociale, comunicazione, nuove tecnologie ICT, Comunicazione interculturale, Giurisprudenza, Servizio sociale, Scienze strategiche, Scienze Politiche, Economia, Psicologia, Scienze del governo, Sociologia Dipartimento CPS, Psicologia del Lavoro e delle Organizzazioni, Lettere, Filosofia**<br>
 >**09/07/23 |** Creata raccolta<br>
