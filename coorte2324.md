@@ -29,6 +29,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea Triennale 🔷**
 
 - [Amministrazione aziendale](https://chat.whatsapp.com/IbRnRxJFBG5BL1EQghYEDe)
+- [Business and management](https://t.me/+4MMhufS3xXI0Njk0) (TG)
 - [Comunicazione interculturale](https://chat.whatsapp.com/KSsOJFhklHvAPwDt9tOZRe)
 - [DAMS](https://t.me/+eUdeqjT4w3BjNzM0) (TG)
 - [Economia](https://t.me/+opZjJM8RF3A2NGY0) (TG)
@@ -37,6 +38,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Corso B](https://t.me/+ojW2Xqiqqk5jYjQ0) (TG)
     - [Corso C](https://t.me/+sTLVeLdipEs3ZWU8) (TG)
     - [Cuneo](https://t.me/+kIhHE28T-fg5YzA0) (TG)
+- [Economia e statistica](https://t.me/+ySkgWpgvsNwyZWI0) (TG)
 - [Educazione professionale](https://chat.whatsapp.com/CjHOCk4M5SQKkGswc189Rc)
 - [Filosofia](https://t.me/filosofia_unito) (TG)
 - [Global law](https://t.me/+53AUdmg2yUNjYTZk) (TG)
@@ -44,11 +46,18 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [Innovazione sociale, comunicazione, nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
 - [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
+- [Lingue e culture per il turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
+- [Lingue e letterature moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
+- [Mediazione linguistica](https://t.me/+hmx35u9eXBM2Yzhk) (TG)
 - [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
 - [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
+- [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ)
+ - [Biella](https://t.me/+tKFZuEiv2tQwMDE8) (TG)
 - [Scienze della comunicazione](https://t.me/+GyIQSQfvYNw5ZGU0) (TG)
+- [Scienze della mediazione linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze internazionali](https://chat.whatsapp.com/LT2I5XmLX52JdyW6FlKvJj)
+- [Scienze motorie](https://t.me/+lMn-2gp8GNBiMTA0) (TG)
 - [Scienze politiche](https://chat.whatsapp.com/FjuoMcAu2NYBI8uShZrLoA)
 - [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8)
 
@@ -60,11 +69,17 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔶 Laurea Magistrale 🔶**
 
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
+- [Comunicazione internazionale per il turismo](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
+- [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [Language technologies and digital humanities](https://t.me/+htvJ1GjyB2VmZDBk) (TG)
+- [Lingue e letterature moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
+- [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
 - [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
+- [Scienze pedagogiche](https://chat.whatsapp.com/JJ7Tlnot8KNIjeagJWZ9cO)
 - [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
+- [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
 
 
@@ -100,6 +115,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**23/07/23 |** Aggiunti gruppi per **Servizio sociale Biella, Business e management, Mediazione linguistica, Scienze motorie, Lingue e letterature moderne, Scienze della mediazione linguistica, Lingue e culture per il turismo, Traduzione, Lingue straniere per la comunicazione internazionale, Comunicazione internazionale per il turismo, English and American Studies, Lingue e letterature moderne, Scienze e tecnologie alimentari, Scienze pedagogiche, Economia e statistica**<br>
 >**17/07/23 |** Aggiunti gruppi per **Psicologia criminologica e forense, Scienze della comunicazione, Global law, Language technologies and digital humanities, Educazione professionale**<br>
 >**11/07/23 |** Aggiunti gruppi per **Economia aziendale (generale, corsi A, B, C, Cuneo), DAMS**<br>
 >**10/07/23 |** Aggiunti gruppi per **Amministrazione aziendale, Antropologia culturale, Scienze internazionali, Innovazione sociale, comunicazione, nuove tecnologie ICT, Comunicazione interculturale, Giurisprudenza, Servizio sociale, Scienze strategiche, Scienze Politiche, Economia, Psicologia, Scienze del governo, Sociologia Dipartimento CPS, Psicologia del Lavoro e delle Organizzazioni, Lettere, Filosofia**<br>
