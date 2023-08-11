@@ -119,7 +119,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**11/08/23 |** Aggiunti gruppi per **Archeologia e storia antica, Direzione d'Impresa Marketing e Strategia, Economia e Management, Tecniche erboristiche, Politiche e servizi sociali (PSS)**
+>**11/08/23 |** Aggiunti gruppi per **Archeologia e storia antica, Direzione d'Impresa Marketing e Strategia, Economia e Management, Tecniche erboristiche, Politiche e servizi sociali (PSS)** <br>
 >**23/07/23 |** Aggiunti gruppi per **Servizio sociale Biella, Business e management, Scienze motorie, Lingue e letterature moderne, Scienze della mediazione linguistica, Lingue e culture per il turismo, Traduzione, Lingue straniere per la comunicazione internazionale, Comunicazione internazionale per il turismo, English and American Studies, Lingue e letterature moderne, Scienze e tecnologie alimentari, Scienze pedagogiche, Economia e statistica**<br>
 >**17/07/23 |** Aggiunti gruppi per **Psicologia criminologica e forense, Scienze della comunicazione, Global law, Language technologies and digital humanities, Educazione professionale**<br>
 >**11/07/23 |** Aggiunti gruppi per **Economia aziendale (generale, corsi A, B, C, Cuneo), DAMS**<br>
