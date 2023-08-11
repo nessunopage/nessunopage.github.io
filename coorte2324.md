@@ -60,6 +60,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze motorie](https://t.me/+lMn-2gp8GNBiMTA0) (TG)
 - [Scienze politiche](https://chat.whatsapp.com/FjuoMcAu2NYBI8uShZrLoA)
 - [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8)
+- [Tecniche erboristiche](https://t.me/tecnicheerboristiche)
 
 
 
@@ -69,12 +70,16 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔶 Laurea Magistrale 🔶**
 
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
+- [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Comunicazione internazionale per il turismo](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
+- [Direzione d'impresa, marketing e strategia](https://chat.whatsapp.com/HgFPijDq114JuteejQ5v12)
+- [Economia e management](https://chat.whatsapp.com/ELWvt3OnnWP8asXpXC1usU)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [Language technologies and digital humanities](https://t.me/+htvJ1GjyB2VmZDBk) (TG)
 - [Lingue e letterature moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
+- [Politiche e servizi sociali](https://chat.whatsapp.com/Lje1YyRBhZW20aqUZPkD59)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
 - [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
 - [Scienze pedagogiche](https://chat.whatsapp.com/JJ7Tlnot8KNIjeagJWZ9cO)
@@ -115,6 +120,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**11/08/23 |** Aggiunti gruppi per **Archeologia e storia antica, Direzione d'Impresa Marketing e Strategia, Economia e Management, Tecniche erboristiche, Politiche e servizi sociali (PSS)**
 >**23/07/23 |** Aggiunti gruppi per **Servizio sociale Biella, Business e management, Mediazione linguistica, Scienze motorie, Lingue e letterature moderne, Scienze della mediazione linguistica, Lingue e culture per il turismo, Traduzione, Lingue straniere per la comunicazione internazionale, Comunicazione internazionale per il turismo, English and American Studies, Lingue e letterature moderne, Scienze e tecnologie alimentari, Scienze pedagogiche, Economia e statistica**<br>
 >**17/07/23 |** Aggiunti gruppi per **Psicologia criminologica e forense, Scienze della comunicazione, Global law, Language technologies and digital humanities, Educazione professionale**<br>
 >**11/07/23 |** Aggiunti gruppi per **Economia aziendale (generale, corsi A, B, C, Cuneo), DAMS**<br>
