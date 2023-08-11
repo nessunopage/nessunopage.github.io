@@ -48,7 +48,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
 - [Lingue e culture per il turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e letterature moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
-- [Mediazione linguistica](https://t.me/+hmx35u9eXBM2Yzhk) (TG)
 - [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
 - [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
@@ -121,7 +120,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 ### ⇊ *Changelog* ⇊
 
 >**11/08/23 |** Aggiunti gruppi per **Archeologia e storia antica, Direzione d'Impresa Marketing e Strategia, Economia e Management, Tecniche erboristiche, Politiche e servizi sociali (PSS)**
->**23/07/23 |** Aggiunti gruppi per **Servizio sociale Biella, Business e management, Mediazione linguistica, Scienze motorie, Lingue e letterature moderne, Scienze della mediazione linguistica, Lingue e culture per il turismo, Traduzione, Lingue straniere per la comunicazione internazionale, Comunicazione internazionale per il turismo, English and American Studies, Lingue e letterature moderne, Scienze e tecnologie alimentari, Scienze pedagogiche, Economia e statistica**<br>
+>**23/07/23 |** Aggiunti gruppi per **Servizio sociale Biella, Business e management, Scienze motorie, Lingue e letterature moderne, Scienze della mediazione linguistica, Lingue e culture per il turismo, Traduzione, Lingue straniere per la comunicazione internazionale, Comunicazione internazionale per il turismo, English and American Studies, Lingue e letterature moderne, Scienze e tecnologie alimentari, Scienze pedagogiche, Economia e statistica**<br>
 >**17/07/23 |** Aggiunti gruppi per **Psicologia criminologica e forense, Scienze della comunicazione, Global law, Language technologies and digital humanities, Educazione professionale**<br>
 >**11/07/23 |** Aggiunti gruppi per **Economia aziendale (generale, corsi A, B, C, Cuneo), DAMS**<br>
 >**10/07/23 |** Aggiunti gruppi per **Amministrazione aziendale, Antropologia culturale, Scienze internazionali, Innovazione sociale, comunicazione, nuove tecnologie ICT, Comunicazione interculturale, Giurisprudenza, Servizio sociale, Scienze strategiche, Scienze Politiche, Economia, Psicologia, Scienze del governo, Sociologia Dipartimento CPS, Psicologia del Lavoro e delle Organizzazioni, Lettere, Filosofia**<br>
