@@ -57,6 +57,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
 - [Lingue e culture per il turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e letterature moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
+- [Management delle comunicazione e informazione aziendale](https://t.me/+tfLt09wIdm9lMzdk) (TG)
 - [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
 - [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
@@ -85,6 +86,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Laurea Magistrale 🔶**
 
+-[Amministrazione e gestione digitale delle aziende (AGDA)](https://chat.whatsapp.com/KUkxqcY11i58vYF39b2TpM)
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Comunicazione internazionale per il turismo](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
@@ -144,6 +146,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**24/08/23 |** Aggiunti gruppi per **Management delle comunicazione e informazione aziendale, Amministrazione e Gestione Digitale delle Aziende (AGDA)** <br>
 >**22/08/23 |** Aggiunti gruppi per **Fisica, Restauro Venaria Reale, Culture e Letterature del Mondo Moderno (CLMM), Servizio sociale (con rappresentanti), Comunicazione interculturale (con rappresentanti), Scienze politiche e sociali - AL e MZ (con rappresentanti), Scienze internazionali dello sviluppo e della cooperazione - AL e MZ (con rappresentanti), Antropologia culturale, Scienze internazionali (con rappresentanti), Economic analysis and policy, Comunicazione pubblica e politica, Global studies for international cooperation, Politiche e servizi sociali (con rappresentanti), Dipartimento di studi umanistici, Dipartimento di studi storici, Dipartimento di filosofia e scienze dell'educazione, Storia, Scienze dell’educazione , Scienze del corpo e della mente, Consulenza del lavoro, Beni culturali, Farmacia, Chimica e tecnologie chimiche** <br>
 >**11/08/23 |** Aggiunti gruppi per **Archeologia e storia antica, Direzione d'Impresa Marketing e Strategia, Economia e Management, Tecniche erboristiche, Politiche e servizi sociali (PSS)** <br>
 >**23/07/23 |** Aggiunti gruppi per **Servizio sociale Biella, Business e management, Scienze motorie, Lingue e letterature moderne, Scienze della mediazione linguistica, Lingue e culture per il turismo, Traduzione, Lingue straniere per la comunicazione internazionale, Comunicazione internazionale per il turismo, English and American Studies, Lingue e letterature moderne, Scienze e tecnologie alimentari, Scienze pedagogiche, Economia e statistica**<br>
