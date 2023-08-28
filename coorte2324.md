@@ -58,8 +58,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e culture per il turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e letterature moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Management delle comunicazione e informazione aziendale](https://t.me/+tfLt09wIdm9lMzdk) (TG)
+- [Matematica](https://chat.whatsapp.com/BlG2I14rSmf758MhlU0B57)
+- [Matematica per la finanza e l’assicurazione](https://t.me/+LOcQ1MsvO4hiZDY0) (TG)
+- [Professioni sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
 - [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
+- [Scienze biologiche](https://t.me/scienzebiologicheunito) (TG)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Scienze dell'educazione](https://chat.whatsapp.com/HTRyl336mW208wCRB4yMsj)
 - [Scienze della comunicazione](https://t.me/+GyIQSQfvYNw5ZGU0) (TG)
@@ -86,16 +90,16 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Laurea Magistrale 🔶**
 
--[Amministrazione e gestione digitale delle aziende (AGDA)](https://chat.whatsapp.com/KUkxqcY11i58vYF39b2TpM)
+- [Amministrazione e gestione digitale delle aziende (AGDA)](https://chat.whatsapp.com/KUkxqcY11i58vYF39b2TpM)
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Comunicazione internazionale per il turismo](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
 - [Direzione d'impresa, marketing e strategia](https://chat.whatsapp.com/HgFPijDq114JuteejQ5v12)
 - [Economia e management](https://chat.whatsapp.com/ELWvt3OnnWP8asXpXC1usU)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
-- [Farmacia](https://chat.whatsapp.com/Lr0k8RpIC939OX1VDTlJVH)
 - [Global studies for international cooperation](https://chat.whatsapp.com/DOqyHBRVOME6w6rNFfqbcd)
 - [Language technologies and digital humanities](https://t.me/+htvJ1GjyB2VmZDBk) (TG)
+[Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/Ec1rj668NhG6ImV2Ziq1aP)
 - [Lingue e letterature moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
@@ -106,6 +110,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
 - [Scienze pedagogiche](https://chat.whatsapp.com/JJ7Tlnot8KNIjeagJWZ9cO)
 - [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
+- [SUISS](https://chat.whatsapp.com/F984fLYFnUJAsjuFSfIjQd)
 - [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
 
@@ -113,6 +118,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
+- [Farmacia](https://chat.whatsapp.com/Lr0k8RpIC939OX1VDTlJVH)
 - [Giurisprudenza](https://chat.whatsapp.com/Hwtcw9LMHkuDgEEd1m0Cl3)
 - [Restauro Venaria Reale](https://chat.whatsapp.com/Gd2DhqNPLObLDettgf6JMy)
 
@@ -146,6 +152,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**28/08/23 |** Aggiunti gruppi per **Matematica, Scienze Biologiche, Professioni Sanitarie, Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale, SUISS, Matematica per la finanza e l’assicurazione**
 >**24/08/23 |** Aggiunti gruppi per **Management delle comunicazione e informazione aziendale, Amministrazione e Gestione Digitale delle Aziende (AGDA)** <br>
 >**22/08/23 |** Aggiunti gruppi per **Fisica, Restauro Venaria Reale, Culture e Letterature del Mondo Moderno (CLMM), Servizio sociale (con rappresentanti), Comunicazione interculturale (con rappresentanti), Scienze politiche e sociali - AL e MZ (con rappresentanti), Scienze internazionali dello sviluppo e della cooperazione - AL e MZ (con rappresentanti), Antropologia culturale, Scienze internazionali (con rappresentanti), Economic analysis and policy, Comunicazione pubblica e politica, Global studies for international cooperation, Politiche e servizi sociali (con rappresentanti), Dipartimento di studi umanistici, Dipartimento di studi storici, Dipartimento di filosofia e scienze dell'educazione, Storia, Scienze dell’educazione , Scienze del corpo e della mente, Consulenza del lavoro, Beni culturali, Farmacia, Chimica e tecnologie chimiche** <br>
 >**11/08/23 |** Aggiunti gruppi per **Archeologia e storia antica, Direzione d'Impresa Marketing e Strategia, Economia e Management, Tecniche erboristiche, Politiche e servizi sociali (PSS)** <br>
