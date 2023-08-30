@@ -64,6 +64,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
 - [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
 - [Scienze biologiche](https://t.me/scienzebiologicheunito) (TG)
+- [Scienze e tecnologie agrarie](https://chat.whatsapp.com/CF0WkhVqUlzHpn3Jw51arM)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Scienze dell'educazione](https://chat.whatsapp.com/HTRyl336mW208wCRB4yMsj)
 - [Scienze della comunicazione](https://t.me/+GyIQSQfvYNw5ZGU0) (TG)
@@ -73,6 +74,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Scienze internazionali dello sviluppo e della cooperazione A-L](https://chat.whatsapp.com/GVc14FlEAxU2E1z4F4OWh3) 🔴 (Con rappresentanti)
     - [Scienze internazionali dello sviluppo e della cooperazione M-Z](https://chat.whatsapp.com/Ikp40Kjs9daGWBaQcxNGtS) 🔴 (Con rappresentanti)
 - [Scienze motorie](https://t.me/+lMn-2gp8GNBiMTA0) (TG)
+- [Scienze naturali](https://chat.whatsapp.com/EVDAPRvEXwH7mqKgzVzk19)
 - [Scienze politiche e sociali](https://chat.whatsapp.com/FjuoMcAu2NYBI8uShZrLoA)
     - [Scienze politiche e sociali A-L](https://chat.whatsapp.com/GlTtdOSisQDCdU4QlaiC8E) 🔴 (Con rappresentanti)
     - [Scienze politiche e sociali M-Z](https://chat.whatsapp.com/BaEJuG2DgMPDqICRECGSoJ) 🔴 (Con rappresentanti)
@@ -97,9 +99,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Direzione d'impresa, marketing e strategia](https://chat.whatsapp.com/HgFPijDq114JuteejQ5v12)
 - [Economia e management](https://chat.whatsapp.com/ELWvt3OnnWP8asXpXC1usU)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
+- [Filosofia](https://chat.whatsapp.com/GuSFdeOItO7D8suaLKtgwu )
 - [Global studies for international cooperation](https://chat.whatsapp.com/DOqyHBRVOME6w6rNFfqbcd)
 - [Language technologies and digital humanities](https://t.me/+htvJ1GjyB2VmZDBk) (TG)
-[Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/Ec1rj668NhG6ImV2Ziq1aP)
+- [Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/Ec1rj668NhG6ImV2Ziq1aP)
 - [Lingue e letterature moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
@@ -137,6 +140,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
 - [Fisica Discord](https://discord.gg/gmxv5vS6)
 - [Mediatore digitale SCIDECOM](https://t.me/digitale_scidecom_unito) (TG)
+- [Scienze naturali](https://t.me/SNUnito) (TG) (generale triennale)
 
 <br>
 
@@ -152,6 +156,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**30/08/23 |** Aggiunti gruppi per **Scienze naturali, Scienze naturali (generale triennale), Filosofia (magistrale), Scienze e tecnologie agrarie** <br>
 >**28/08/23 |** Aggiunti gruppi per **Matematica, Scienze Biologiche, Professioni Sanitarie, Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale, SUISS, Matematica per la finanza e l’assicurazione** <br>
 >**24/08/23 |** Aggiunti gruppi per **Management delle comunicazione e informazione aziendale, Amministrazione e Gestione Digitale delle Aziende (AGDA)** <br>
 >**22/08/23 |** Aggiunti gruppi per **Fisica, Restauro Venaria Reale, Culture e Letterature del Mondo Moderno (CLMM), Servizio sociale (con rappresentanti), Comunicazione interculturale (con rappresentanti), Scienze politiche e sociali - AL e MZ (con rappresentanti), Scienze internazionali dello sviluppo e della cooperazione - AL e MZ (con rappresentanti), Antropologia culturale, Scienze internazionali (con rappresentanti), Economic analysis and policy, Comunicazione pubblica e politica, Global studies for international cooperation, Politiche e servizi sociali (con rappresentanti), Dipartimento di studi umanistici, Dipartimento di studi storici, Dipartimento di filosofia e scienze dell'educazione, Storia, Scienze dell’educazione , Scienze del corpo e della mente, Consulenza del lavoro, Beni culturali, Farmacia, Chimica e tecnologie chimiche** <br>
