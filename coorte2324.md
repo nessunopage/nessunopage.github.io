@@ -31,6 +31,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Amministrazione aziendale](https://chat.whatsapp.com/IbRnRxJFBG5BL1EQghYEDe)
 - [Antropologia culturale](https://chat.whatsapp.com/B8UJ9GuOn67KP9vOFuNvxa)
 - [Beni culturali](https://chat.whatsapp.com/LrQQdfHSxXTIAPpPTftraJ)
+- [Biotecnologie](https://chat.whatsapp.com/EtL3dUr3et7Ebcue0XYGhq)
 - [Business and management](https://t.me/+4MMhufS3xXI0Njk0) (TG)
 - [Chimica e tecnologie chimiche](https://t.me/ch123mi) (TG)
 - [Comunicazione interculturale](https://chat.whatsapp.com/KSsOJFhklHvAPwDt9tOZRe)
@@ -39,6 +40,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Consulenza del lavoro](https://t.me/+uDnBBIaZRHdmZTBk) (TG)
 - [Culture e letterarature del mondo moderno](https://chat.whatsapp.com/FRokmsVGkeDCnay9yM4ZR6)
 - [DAMS](https://t.me/+eUdeqjT4w3BjNzM0) (TG)
+- [Diritto per le imprese e le istituzioni](https://chat.whatsapp.com/Kl5L2t1PLic5IGDoTxfG45)
 - [Economia](https://t.me/+opZjJM8RF3A2NGY0) (TG)
 - [Economia aziendale](https://t.me/+J2v75VNnIAgzZTA0) (TG)
     - [Corso A](https://t.me/+j5wID6UA5_8wNWI0) (TG)
@@ -55,6 +57,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [Innovazione sociale, comunicazione, nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
 - [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
+- [Lingue e culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM)
 - [Lingue e culture per il turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e letterature moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Management delle comunicazione e informazione aziendale](https://t.me/+tfLt09wIdm9lMzdk) (TG)
@@ -63,12 +66,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Professioni sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
 - [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
+- [Scienza dei materiali](https://chat.whatsapp.com/GSRKKGOrxdNE3iVUFl1TO3)
 - [Scienze biologiche](https://t.me/scienzebiologicheunito) (TG)
-- [Scienze e tecnologie agrarie](https://chat.whatsapp.com/CF0WkhVqUlzHpn3Jw51arM)
-- [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Scienze dell'educazione](https://chat.whatsapp.com/HTRyl336mW208wCRB4yMsj)
 - [Scienze della comunicazione](https://t.me/+GyIQSQfvYNw5ZGU0) (TG)
 - [Scienze della mediazione linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
+- [Scienze e tecnologie agrarie](https://chat.whatsapp.com/CF0WkhVqUlzHpn3Jw51arM)
+- [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Scienze internazionali dello sviluppo e della cooperazione](https://chat.whatsapp.com/LT2I5XmLX52JdyW6FlKvJj)
     - [Scienze internazionali dello sviluppo e della cooperazione](https://chat.whatsapp.com/Lccn2LcQqq2AT8Dc5cjds1) 🔴 (Con rappresentanti)
     - [Scienze internazionali dello sviluppo e della cooperazione A-L](https://chat.whatsapp.com/GVc14FlEAxU2E1z4F4OWh3) 🔴 (Con rappresentanti)
@@ -95,6 +99,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Amministrazione e gestione digitale delle aziende (AGDA)](https://chat.whatsapp.com/KUkxqcY11i58vYF39b2TpM)
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
+- [Comunicazione, ICT e media CIME](https://t.me/+fi9IgbU5bEBhMTA0) (TG)
 - [Comunicazione internazionale per il turismo](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
 - [Direzione d'impresa, marketing e strategia](https://chat.whatsapp.com/HgFPijDq114JuteejQ5v12)
 - [Economia e management](https://chat.whatsapp.com/ELWvt3OnnWP8asXpXC1usU)
@@ -105,10 +110,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/Ec1rj668NhG6ImV2Ziq1aP)
 - [Lingue e letterature moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
+- [Psicologia clinica](https://t.me/+O3iiGhHpCjs3YTg0) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
 - [Politiche e servizi sociali](https://chat.whatsapp.com/Lje1YyRBhZW20aqUZPkD59)
     - [Politiche e servizi sociali](https://chat.whatsapp.com/HuWVdm1RDU3EPv4C2URKj3) 🔴 (Con rappresentanti)
-- [Scienze del corpo e della mente](https://t.me/+SBLI0kvY8UpjZTc8) (TG)
+- [Scienze del corpo e della mente](https://t.me/scienzedelcorpoedellamente) (TG)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
 - [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
 - [Scienze pedagogiche](https://chat.whatsapp.com/JJ7Tlnot8KNIjeagJWZ9cO)
@@ -123,6 +129,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea a Ciclo Unico 🔷**
 - [Farmacia](https://chat.whatsapp.com/Lr0k8RpIC939OX1VDTlJVH)
 - [Giurisprudenza](https://chat.whatsapp.com/Hwtcw9LMHkuDgEEd1m0Cl3)
+- [Medicina](https://chat.whatsapp.com/GP1RWtv5TtpK6OTuUn9lHd)
 - [Restauro Venaria Reale](https://chat.whatsapp.com/Gd2DhqNPLObLDettgf6JMy)
 
 
@@ -156,6 +163,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**03/09/23 |** Aggiunti gruppi per **Scienza dei materiali, Diritto per le imprese e le istituzioni, Lingue e culture dell'Asia e dell'Africa, Biotecnologie, Psicologia clinica, Medicina, CIME (Comunicazione, ICT e media), Scienze del corpo e della mente (aggiornato)** <br>
 >**30/08/23 |** Aggiunti gruppi per **Scienze naturali, Scienze naturali (generale triennale), Filosofia (magistrale), Scienze e tecnologie agrarie** <br>
 >**28/08/23 |** Aggiunti gruppi per **Matematica, Scienze Biologiche, Professioni Sanitarie, Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale, SUISS, Matematica per la finanza e l’assicurazione** <br>
 >**24/08/23 |** Aggiunti gruppi per **Management delle comunicazione e informazione aziendale, Amministrazione e Gestione Digitale delle Aziende (AGDA)** <br>
