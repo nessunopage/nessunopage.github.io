@@ -74,7 +74,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze e tecnologie agrarie](https://chat.whatsapp.com/CF0WkhVqUlzHpn3Jw51arM)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Scienze internazionali dello sviluppo e della cooperazione](https://chat.whatsapp.com/LT2I5XmLX52JdyW6FlKvJj)
-    - [Scienze internazionali dello sviluppo e della cooperazione](https://chat.whatsapp.com/Lccn2LcQqq2AT8Dc5cjds1) 🔴 (Con rappresentanti)
     - [Scienze internazionali dello sviluppo e della cooperazione A-L](https://chat.whatsapp.com/GVc14FlEAxU2E1z4F4OWh3) 🔴 (Con rappresentanti)
     - [Scienze internazionali dello sviluppo e della cooperazione M-Z](https://chat.whatsapp.com/Ikp40Kjs9daGWBaQcxNGtS) 🔴 (Con rappresentanti)
 - [Scienze motorie](https://t.me/+lMn-2gp8GNBiMTA0) (TG)
