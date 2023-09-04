@@ -73,6 +73,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della mediazione linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze e tecnologie agrarie](https://chat.whatsapp.com/CF0WkhVqUlzHpn3Jw51arM)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
+- [Scienze e tecnologie per la montagna](https://chat.whatsapp.com/JlNN8acMyp8L0xO971DIYt)
 - [Scienze internazionali dello sviluppo e della cooperazione](https://chat.whatsapp.com/LT2I5XmLX52JdyW6FlKvJj)
     - [Scienze internazionali dello sviluppo e della cooperazione A-L](https://chat.whatsapp.com/GVc14FlEAxU2E1z4F4OWh3) 🔴 (Con rappresentanti)
     - [Scienze internazionali dello sviluppo e della cooperazione M-Z](https://chat.whatsapp.com/Ikp40Kjs9daGWBaQcxNGtS) 🔴 (Con rappresentanti)
@@ -116,8 +117,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze del corpo e della mente](https://t.me/scienzedelcorpoedellamente) (TG)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
 - [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
+   - [Scienze internazionali (MENA)](https://t.me/+wCfvG0aTWkxkZTQ0) 🔴 (TG) (Con rappresentanti)
 - [Scienze pedagogiche](https://chat.whatsapp.com/JJ7Tlnot8KNIjeagJWZ9cO)
 - [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
+- [Stochastics and data science](https://t.me/+GQ3fyqHnfjo1NTA8) (TG)
 - [SUISS](https://chat.whatsapp.com/F984fLYFnUJAsjuFSfIjQd)
 - [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
@@ -162,6 +165,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**04/09/23 |** Aggiunti gruppi per **Stochastics and data science, Scienze e tecnologie per la montagna, Scienze internazionali (con rappresentanti)** <br>
 >**03/09/23 |** Aggiunti gruppi per **Scienza dei materiali, Diritto per le imprese e le istituzioni, Lingue e culture dell'Asia e dell'Africa, Biotecnologie, Psicologia clinica, Medicina, CIME (Comunicazione, ICT e media), Scienze del corpo e della mente (aggiornato)** <br>
 >**30/08/23 |** Aggiunti gruppi per **Scienze naturali, Scienze naturali (generale triennale), Filosofia (magistrale), Scienze e tecnologie agrarie** <br>
 >**28/08/23 |** Aggiunti gruppi per **Matematica, Scienze Biologiche, Professioni Sanitarie, Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale, SUISS, Matematica per la finanza e l’assicurazione** <br>
