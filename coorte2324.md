@@ -14,12 +14,6 @@
 
 >⚠️ **ATTENZIONE** ⚠️: Tutti i **gruppi** della lista così come la **lista** stessa **non sono ufficiali**, sono stati **creati** e sono **auto-gestiti** esclusivamente da **studenti**, **senza** alcuna **partecipazione** dell'Università di Torino.
 
-
-. . .
-
-> 🔺 **SUPPORTO** 🔺: **Se volete creare un nuovo gruppo o avete problemi con hacker/spammer nei gruppi contattate [@N_essuno](https://t.me/N_essuno) (Telegram) per consigli!**
-
-
 ***
 
 ### ⇊ Gruppi ⇊
