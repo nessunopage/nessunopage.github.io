@@ -68,9 +68,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
 - [Scienza dei materiali](https://chat.whatsapp.com/GSRKKGOrxdNE3iVUFl1TO3)
 - [Scienze biologiche](https://t.me/scienzebiologicheunito) (TG)
+- [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/EtxeJGQGB0vJVo6IQP4alS)
 - [Scienze dell'educazione](https://chat.whatsapp.com/HTRyl336mW208wCRB4yMsj)
 - [Scienze della comunicazione](https://t.me/+GyIQSQfvYNw5ZGU0) (TG)
-- [Scienze della mediazione linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
+    - [Scienze della comunicazione](https://chat.whatsapp.com/FL6R19DlNe2JJwSWViGgnu) 🔴 (Con tutor)
+- [Scienze della mediazione linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG) 
+    - [Scienze della mediazione linguistica](https://chat.whatsapp.com/CxYpOvVGOeCGscTHaL3g3J) 🔴 (Con rappresentanti)
 - [Scienze e tecnologie agrarie](https://chat.whatsapp.com/CF0WkhVqUlzHpn3Jw51arM)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Scienze e tecnologie per la montagna](https://chat.whatsapp.com/JlNN8acMyp8L0xO971DIYt)
@@ -99,9 +102,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Amministrazione e gestione digitale delle aziende (AGDA)](https://chat.whatsapp.com/KUkxqcY11i58vYF39b2TpM)
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
+- [Area and global studies for international cooperation (AGIC)](https://chat.whatsapp.com/GO3akKkEBoKENiFYCxdxG7)
 - [Comunicazione, ICT e media CIME](https://t.me/+fi9IgbU5bEBhMTA0) (TG)
+- [Comunicazioni e culture dei media](https://chat.whatsapp.com/BRQZ8ZwEQNmCQ5RgXR9FSv)
 - [Comunicazione internazionale per il turismo](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
+- [Comunicazione Linguistico-Culturale](https://chat.whatsapp.com/H7j5AVsHl0D84KWWLMJoAr)
 - [Direzione d'impresa, marketing e strategia](https://chat.whatsapp.com/HgFPijDq114JuteejQ5v12)
+- [Economia dell'ambiente, della cultura e del territorio (EACT)](https://chat.whatsapp.com/CLAGhOzHDNj3uA3rcJxiEK)
 - [Economia e management](https://chat.whatsapp.com/ELWvt3OnnWP8asXpXC1usU)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [Filosofia](https://chat.whatsapp.com/GuSFdeOItO7D8suaLKtgwu )
@@ -118,8 +125,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
 - [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
    - [Scienze internazionali (MENA)](https://t.me/+wCfvG0aTWkxkZTQ0) 🔴 (TG) (Con rappresentanti)
+- [Scienze internazionali (China and global studies)](https://chat.whatsapp.com/LDbZ0FA3ddw7WdLc5LMNIW)
 - [Scienze pedagogiche](https://chat.whatsapp.com/JJ7Tlnot8KNIjeagJWZ9cO)
+- [Scienze storiche](https://chat.whatsapp.com/Lp9dNdjODmBEm0bLoCzjn8)
 - [Sociologia](https://t.me/+URuxJdtYkwYxZjY8) (TG)
+    - [Sociologia](https://chat.whatsapp.com/DuAGzIUIzKDDA0X2tXuqS0) 🔴 (Con rappresentanti)
 - [Stochastics and data science](https://t.me/+GQ3fyqHnfjo1NTA8) (TG)
 - [SUISS](https://chat.whatsapp.com/F984fLYFnUJAsjuFSfIjQd)
 - [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
@@ -131,7 +141,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea a Ciclo Unico 🔷**
 - [Farmacia](https://chat.whatsapp.com/Lr0k8RpIC939OX1VDTlJVH)
 - [Giurisprudenza](https://chat.whatsapp.com/Hwtcw9LMHkuDgEEd1m0Cl3)
-- [Medicina](https://chat.whatsapp.com/GP1RWtv5TtpK6OTuUn9lHd)
+- [Medicina e chirurgia](https://chat.whatsapp.com/GP1RWtv5TtpK6OTuUn9lHd)
+    - [Medicina e Chirurgia canale A (cognomi AA-CA)](https://chat.whatsapp.com/HvDwmXtZy3Q9Nz82jVsc2P)
+    - [Medicina e Chirurgia canale B (cognomi CB-GO)](https://chat.whatsapp.com/InCM0x9LqKq1HiZx6T9DJ0)
+    - [Medicina e Chirurgia canale C (cognome GP-PA)](https://chat.whatsapp.com/Jzp8TObU1ZHB3Nvngpqjgr)
+    - [Medicina e Chirurgia canale D (cognomi PB-ZZ)](https://chat.whatsapp.com/C7BET4sK1bxBVnhR3hfHmV)
+- [Medicina veterinaria](https://chat.whatsapp.com/EgxmKpPVWBj6qQCzIRtTtH)
+    - [Medicina veterinaria](https://chat.whatsapp.com/GJHb5zwRjJPA8kyEtZ53VV) 🔴
 - [Restauro Venaria Reale](https://chat.whatsapp.com/Gd2DhqNPLObLDettgf6JMy)
 
 
@@ -149,6 +165,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
 - [Fisica Discord](https://discord.gg/gmxv5vS6)
 - [Mediatore digitale SCIDECOM](https://t.me/digitale_scidecom_unito) (TG)
+- [Odontoiatra e protesi dentaria ](https://chat.whatsapp.com/ICpCfo0CUnv9nF8w16AzxB)
+- [Scienze internazionali (gruppo generale)](https://chat.whatsapp.com/DjTgXSWkSXwBG6SmmUp1NA)
 - [Scienze naturali](https://t.me/SNUnito) (TG) (generale triennale)
 
 <br>
@@ -165,6 +183,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**08/09/23 |** Aggiunti gruppi per **Medicina e Chirurgia canale A, B, C, Scienze della mediazione linguistica (con rappresentanti), Area and global studies for international cooperation (AGIC),Sociologia (con rappresentanti), Scienze dell'amministrazione digitale, Comunicazioni e culture dei media, Comunicazione linguistico-culturale, Scienze storiche, Scienze internazionali (China and Global Studies), Odontoiatra e protesi dentaria, Medicina veterinaria, Scienze internazionali (gruppo generale),Economia dell'ambiente, della cultura e del territorio (EACT), Scienze della comunicazione (con tutor)** <br>
 >**04/09/23 |** Aggiunti gruppi per **Stochastics and data science, Scienze e tecnologie per la montagna, Scienze internazionali (con rappresentanti)** <br>
 >**03/09/23 |** Aggiunti gruppi per **Scienza dei materiali, Diritto per le imprese e le istituzioni, Lingue e culture dell'Asia e dell'Africa, Biotecnologie, Psicologia clinica, Medicina, CIME (Comunicazione, ICT e media), Scienze del corpo e della mente (aggiornato)** <br>
 >**30/08/23 |** Aggiunti gruppi per **Scienze naturali, Scienze naturali (generale triennale), Filosofia (magistrale), Scienze e tecnologie agrarie** <br>
