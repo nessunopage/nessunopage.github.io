@@ -42,7 +42,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Business and management](https://chat.whatsapp.com/IJg0d4mNTOR2pmfseiKwPK) 🔴
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
 - [Diritto per le imprese e delle istituzioni](https://chat.whatsapp.com/HZWLYag5sC1ExjZmzan6yl)
-- [Economia](https://chat.whatsapp.com/KLHti2PG7Eq3PTZ7w1YapV)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
     - [Corso B](https://chat.whatsapp.com/FCFwCapRzkh2aRd0QZbOH2)
