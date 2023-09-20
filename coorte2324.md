@@ -27,6 +27,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Beni culturali](https://chat.whatsapp.com/LrQQdfHSxXTIAPpPTftraJ)
 - [Biotecnologie](https://chat.whatsapp.com/EtL3dUr3et7Ebcue0XYGhq)
 - [Business and management](https://t.me/+4MMhufS3xXI0Njk0) (TG)
+    - [Business and management](https://chat.whatsapp.com/GaI715ktjCoJBwXbafHI0Y) 🔴
 - [Chimica e tecnologie chimiche](https://t.me/ch123mi) (TG)
 - [Comunicazione interculturale](https://chat.whatsapp.com/KSsOJFhklHvAPwDt9tOZRe)
     - [Comunicazione interculturale](https://chat.whatsapp.com/E5i18BnbXRn2CRy0bzVFe8) 🔴 (Con rappresentanti)
@@ -73,6 +74,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze e tecnologie agrarie](https://chat.whatsapp.com/CF0WkhVqUlzHpn3Jw51arM)
 - [Scienze e tecnologie alimentari](https://chat.whatsapp.com/I93gCXgY5Cg767DadiQ8wG)
 - [Scienze e tecnologie per la montagna](https://chat.whatsapp.com/JlNN8acMyp8L0xO971DIYt)
+- [Scienze forestali e ambientali](https://chat.whatsapp.com/FLZasWBu9Qa30F87BVxNML)
 - [Scienze internazionali dello sviluppo e della cooperazione](https://chat.whatsapp.com/LT2I5XmLX52JdyW6FlKvJj)
     - [Scienze internazionali dello sviluppo e della cooperazione A-L](https://chat.whatsapp.com/GVc14FlEAxU2E1z4F4OWh3) 🔴 (Con rappresentanti)
     - [Scienze internazionali dello sviluppo e della cooperazione M-Z](https://chat.whatsapp.com/Ikp40Kjs9daGWBaQcxNGtS) 🔴 (Con rappresentanti)
@@ -86,7 +88,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Servizio sociale](https://chat.whatsapp.com/KYdDw0onGfoHwr1psnUzIx) 🔴 (Con rappresentanti)
     - [Biella](https://t.me/+tKFZuEiv2tQwMDE8) (TG)
 - [Sistemi zootecnici sostenibili](https://chat.whatsapp.com/ImQNmkLa0Sg4ePD2EYgrYG)
+    - [Sistemi zootecnici sostenibili](https://chat.whatsapp.com/FDb5hDY4JI51s5n8t1csSI) 🔴
 - [Storia](https://t.me/matricole_unito_storia_2023_24) (TG)
+- [Tecniche di assistenza veterinaria](https://chat.whatsapp.com/DqP8z84c0YaDwgv9WIuTY2)
 - [Tecniche erboristiche](https://t.me/+jV7FzXpsWDcyNDM8) (TG)
 - [Viticoltura ed enologia](https://chat.whatsapp.com/GAgy5ot2kJO0dFRui8rm7H)
 
@@ -151,6 +155,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Medicina e Chirurgia canale D (cognomi PB-ZZ)](https://chat.whatsapp.com/C7BET4sK1bxBVnhR3hfHmV)
 - [Medicina veterinaria](https://chat.whatsapp.com/EgxmKpPVWBj6qQCzIRtTtH)
 - [Restauro Venaria Reale](https://chat.whatsapp.com/Gd2DhqNPLObLDettgf6JMy)
+- [Scienze della formazione primaria](https://t.me/+7Mi3hP0HN21lNjE8) (TG)
 
 
 
@@ -185,6 +190,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**20/09/23 |** Aggiunti gruppi per **Scienze forestali e ambientali, Tecniche di assistenza veterinaria, Scienze della formazione primaria, Sistemi zootecnici sostenibili (doppione), Business and management (doppione)** <br>
 >**18/09/23 |** Aggiunti gruppi per **Sistemi zootecnici sostenibili, Viticoltura ed enologia, Tecniche erboristiche, Innovazione sociale, comunicazione e nuove tecnologie ICT Cognomi AL e M-Z (con rappresentanti), Produzioni animali (TAVET e SIZOS), Cinema, arti e media (CAM), Biologia dell'ambiente, Scienze internazionali (peace and conflict studies), Scienze delle religioni, Fisica nucleare** <br>
 >**08/09/23 |** Aggiunti gruppi per **Medicina e Chirurgia canale A, B, C, Scienze della mediazione linguistica (con rappresentanti), Area and global studies for international cooperation (AGIC),Sociologia (con rappresentanti), Scienze dell'amministrazione digitale, Comunicazioni e culture dei media, Comunicazione linguistico-culturale, Scienze storiche, Scienze internazionali (China and Global Studies), Odontoiatra e protesi dentaria, Medicina veterinaria, Scienze internazionali (gruppo generale),Economia dell'ambiente, della cultura e del territorio (EACT), Scienze della comunicazione (con tutor)** <br>
 >**04/09/23 |** Aggiunti gruppi per **Stochastics and data science, Scienze e tecnologie per la montagna, Scienze internazionali (con rappresentanti)** <br>
