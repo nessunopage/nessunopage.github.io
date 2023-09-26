@@ -47,12 +47,18 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Educazione professionale](https://chat.whatsapp.com/CjHOCk4M5SQKkGswc189Rc)
 - [Filosofia](https://t.me/filosofia_unito) (TG)
 - [Fisica](https://chat.whatsapp.com/E3KrGz4BqWJ8ETgcCU07vA)
+    - [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
 - [Global law](https://t.me/+53AUdmg2yUNjYTZk) (TG)
+- [Infermieristica AOU (generale)](https://t.me/infermieristicaaou23)
+    - [Infermierstica AOU](https://chat.whatsapp.com/DsGrOyNmAZw6AN9kkQqSp5) 🔴
+    - [Infermieristica Cuneo](https://chat.whatsapp.com/B8b4IozVUM53GEpIaHfT4I)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [Innovazione sociale, comunicazione e nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
     - [Cognomi A-L](https://chat.whatsapp.com/HW8Wfr4pqaJ6u06GqUrtz5) (Con rappresentanti)
     - [Cognomi M-Z](https://chat.whatsapp.com/JYgs7P0QHKEAQASbLYxyPy) (Con rappresentanti)
+    - [Innovazione sociale, comunicazione e nuove tecnologie ICT](https://t.me/+HETj6cpJgU40NDk0) 🔴 (TG)
+    - [ICT (Facebook)](https://www.facebook.com/groups/257169333297288)
 - [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
 - [Lingue e culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM)
 - [Lingue e culture per il turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG) (Con rappresentanti)
@@ -90,6 +96,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Sistemi zootecnici sostenibili](https://chat.whatsapp.com/ImQNmkLa0Sg4ePD2EYgrYG)
     - [Sistemi zootecnici sostenibili](https://chat.whatsapp.com/FDb5hDY4JI51s5n8t1csSI) 🔴
 - [Storia](https://t.me/matricole_unito_storia_2023_24) (TG)
+- [Tecnica della riabilitazione psichiatrica](https://chat.whatsapp.com/LEdDIidmhMw8yw0Y9uosyS)
 - [Tecniche di assistenza veterinaria](https://chat.whatsapp.com/DqP8z84c0YaDwgv9WIuTY2)
 - [Tecniche erboristiche](https://t.me/+jV7FzXpsWDcyNDM8) (TG)
 - [Viticoltura ed enologia](https://chat.whatsapp.com/GAgy5ot2kJO0dFRui8rm7H)
@@ -103,9 +110,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Amministrazione e gestione digitale delle aziende (AGDA)](https://chat.whatsapp.com/KUkxqcY11i58vYF39b2TpM)
 - [Antropologia culturale](https://t.me/+yjGk98sTj4EzYWY0) (TG)
+    - [Antropologia culturale](https://chat.whatsapp.com/JrStoQEJTvNGC0gPsgrSkw) 🔴 (Con rappresentanti)
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for international cooperation (AGIC)](https://chat.whatsapp.com/GO3akKkEBoKENiFYCxdxG7)
 - [Biologia dell'ambiente](https://chat.whatsapp.com/Hn7m83r7FXw9JMs9MrUCZE)
+- [Business Administration](https://chat.whatsapp.com/K7MNfVtzRUs6kjdtuUBVNU)
 - [Cinema, arti e media (CAM)](https://chat.whatsapp.com/EHXsAIh8cngLLNT4k9VmtB)
 - [Comunicazione, ICT e media CIME](https://t.me/+fi9IgbU5bEBhMTA0) (TG)
 - [Comunicazioni e culture dei media](https://chat.whatsapp.com/BRQZ8ZwEQNmCQ5RgXR9FSv)
@@ -115,6 +124,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia dell'ambiente, della cultura e del territorio (EACT)](https://chat.whatsapp.com/CLAGhOzHDNj3uA3rcJxiEK)
 - [Economia e management](https://chat.whatsapp.com/ELWvt3OnnWP8asXpXC1usU)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG) (Con rappresentanti)
+- [European legal studies](https://chat.whatsapp.com/FUzd9fHUHm0FqK6N9BpCIh)
 - [Filosofia](https://chat.whatsapp.com/GuSFdeOItO7D8suaLKtgwu)
 - [Fisica nucleare](https://chat.whatsapp.com/BsdZy1AXmMMK6PR44x2sFs)
 - [Global studies for international cooperation](https://chat.whatsapp.com/DOqyHBRVOME6w6rNFfqbcd)
@@ -169,7 +179,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Dipartimento filosofia e scienze dell'educazione](https://chat.whatsapp.com/ETU9TckdSZv8ssCzghkoM5)
 - [Dipartimento studi storici](https://chat.whatsapp.com/DWhcOJ1Xq9w0kHeX5ELXlL)
 - [Dipartimento studi umanistici](https://chat.whatsapp.com/KyzTilDZyodBNxYsHSJLOK)
-- [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
 - [Fisica Discord](https://discord.gg/gmxv5vS6)
 - [Mediatore digitale SCIDECOM](https://t.me/digitale_scidecom_unito) (TG)
 - [Odontoiatra e protesi dentaria ](https://chat.whatsapp.com/ICpCfo0CUnv9nF8w16AzxB)
@@ -190,6 +199,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**26/09/23 |** Aggiunti gruppi per **Business Administration, Antropologia culturale (con rappresentanti), Infermieristica AOU (generale), Infermierstica AOU, Infermieristica Cuneo, European Legal Studies, ICT (Facebook), Tecnica della riabilitazione psichiatrica** <br>
 >**20/09/23 |** Aggiunti gruppi per **Scienze forestali e ambientali, Tecniche di assistenza veterinaria, Scienze della formazione primaria, Sistemi zootecnici sostenibili (doppione), Business and management (doppione)** <br>
 >**18/09/23 |** Aggiunti gruppi per **Sistemi zootecnici sostenibili, Viticoltura ed enologia, Tecniche erboristiche, Innovazione sociale, comunicazione e nuove tecnologie ICT Cognomi AL e M-Z (con rappresentanti), Produzioni animali (TAVET e SIZOS), Cinema, arti e media (CAM), Biologia dell'ambiente, Scienze internazionali (peace and conflict studies), Scienze delle religioni, Fisica nucleare** <br>
 >**08/09/23 |** Aggiunti gruppi per **Medicina e Chirurgia canale A, B, C, Scienze della mediazione linguistica (con rappresentanti), Area and global studies for international cooperation (AGIC),Sociologia (con rappresentanti), Scienze dell'amministrazione digitale, Comunicazioni e culture dei media, Comunicazione linguistico-culturale, Scienze storiche, Scienze internazionali (China and Global Studies), Odontoiatra e protesi dentaria, Medicina veterinaria, Scienze internazionali (gruppo generale),Economia dell'ambiente, della cultura e del territorio (EACT), Scienze della comunicazione (con tutor)** <br>
