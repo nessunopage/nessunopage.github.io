@@ -50,7 +50,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
 - [Global law](https://t.me/+53AUdmg2yUNjYTZk) (TG)
 - [Infermieristica AOU (generale)](https://t.me/infermieristicaaou23)
-    - [Infermierstica AOU](https://chat.whatsapp.com/DsGrOyNmAZw6AN9kkQqSp5) 🔴
+    - [Infermieristica AOU](https://chat.whatsapp.com/DsGrOyNmAZw6AN9kkQqSp5) 🔴
     - [Infermieristica Cuneo](https://chat.whatsapp.com/B8b4IozVUM53GEpIaHfT4I)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
@@ -199,7 +199,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**26/09/23 |** Aggiunti gruppi per **Business Administration, Antropologia culturale (con rappresentanti), Infermieristica AOU (generale), Infermierstica AOU, Infermieristica Cuneo, European Legal Studies, ICT (Facebook), Tecnica della riabilitazione psichiatrica** <br>
+>**26/09/23 |** Aggiunti gruppi per **Business Administration, Antropologia culturale (con rappresentanti), Infermieristica AOU (generale), Infermieristica AOU, Infermieristica Cuneo, European Legal Studies, ICT (Facebook), Tecnica della riabilitazione psichiatrica** <br>
 >**20/09/23 |** Aggiunti gruppi per **Scienze forestali e ambientali, Tecniche di assistenza veterinaria, Scienze della formazione primaria, Sistemi zootecnici sostenibili (doppione), Business and management (doppione)** <br>
 >**18/09/23 |** Aggiunti gruppi per **Sistemi zootecnici sostenibili, Viticoltura ed enologia, Tecniche erboristiche, Innovazione sociale, comunicazione e nuove tecnologie ICT Cognomi AL e M-Z (con rappresentanti), Produzioni animali (TAVET e SIZOS), Cinema, arti e media (CAM), Biologia dell'ambiente, Scienze internazionali (peace and conflict studies), Scienze delle religioni, Fisica nucleare** <br>
 >**08/09/23 |** Aggiunti gruppi per **Medicina e Chirurgia canale A, B, C, Scienze della mediazione linguistica (con rappresentanti), Area and global studies for international cooperation (AGIC),Sociologia (con rappresentanti), Scienze dell'amministrazione digitale, Comunicazioni e culture dei media, Comunicazione linguistico-culturale, Scienze storiche, Scienze internazionali (China and Global Studies), Odontoiatra e protesi dentaria, Medicina veterinaria, Scienze internazionali (gruppo generale),Economia dell'ambiente, della cultura e del territorio (EACT), Scienze della comunicazione (con tutor)** <br>
