@@ -35,7 +35,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Consulenza del lavoro](https://t.me/+uDnBBIaZRHdmZTBk) (TG)
 - [Culture e letterarature del mondo moderno](https://chat.whatsapp.com/FRokmsVGkeDCnay9yM4ZR6)
 - [DAMS](https://t.me/+eUdeqjT4w3BjNzM0) (TG)
-- [Diritto per le imprese e le istituzioni](https://chat.whatsapp.com/Kl5L2t1PLic5IGDoTxfG45)
+- [Diritto per le imprese e le istituzioni](https://chat.whatsapp.com/E96Bm7YJJiRLuDgAgwrIHP) (Con rappresentanti)
 - [Economia](https://t.me/+opZjJM8RF3A2NGY0) (TG)
 - [Economia aziendale](https://t.me/+J2v75VNnIAgzZTA0) (TG)
     - [Corso A](https://t.me/+j5wID6UA5_8wNWI0) (TG)
