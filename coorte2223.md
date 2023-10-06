@@ -33,33 +33,24 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Gruppo A](https://chat.whatsapp.com/E23YGqtKDFOFnK4v6lYFOM) (Cognomi A-K)
     - [Gruppo B](https://chat.whatsapp.com/E8ovvIW5Mlg7qtua9rL4Bi) (Cognomi L-Z)
 - [Comunicazione interculturale](https://t.me/+UiJxF1hdPTYwN2Q0) (TG)
-    - [Comunicazione interculturale](https://chat.whatsapp.com/K2Af6z9gUCU63OCwuZDnfx) 
 - [Consulenza del lavoro e gestione delle risorse umane](https://chat.whatsapp.com/H6vJFS8VcxsCGfxNzBlpet)
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/Ic8HEPk1P68ACTaqWKrNzE)
 - [Beni culturali](https://chat.whatsapp.com/GSUd5CZlSTY3o5WTMVedjW)
-- [Biotecnologie](https://chat.whatsapp.com/KqOAJyIEIGiAVC3F0GqzfN)
-- [Business and management](https://t.me/businessandmanagement2223) (TG) 🔴
-    - [Business and management](https://chat.whatsapp.com/IJg0d4mNTOR2pmfseiKwPK) 🔴
+- [Business and management](https://t.me/businessandmanagement2223) (TG)
 - [DAMS](https://chat.whatsapp.com/FdSBvCSm1gF4qPYpimCG6T)
-- [Diritto per le imprese e delle istituzioni](https://chat.whatsapp.com/HZWLYag5sC1ExjZmzan6yl)
 - [Economia aziendale](https://t.me/economiaaziendale2223unito) (TG)
     - [Corso A](https://chat.whatsapp.com/CcDl4zShjAfI08Apy0UueX)
     - [Corso B](https://chat.whatsapp.com/FCFwCapRzkh2aRd0QZbOH2)
-    - [Corso C](https://chat.whatsapp.com/G6MjBupcS4vLGcH2KWZQYZ)
     - [Cuneo](https://chat.whatsapp.com/EBzsZVbxwdD1IP6x3xL5Hk)
-- [Economia e management](https://t.me/economiaemanagementunito) (TG)
-- [Economia e statistica](https://chat.whatsapp.com/ISXPlcYjH0I5SwWfZR93UT) 🔴
-    - [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
+- [Economia e statistica](https://chat.whatsapp.com/FvS4XJZF4SXCNWKWpiJrJB) 🔴
 - [Enologia e viticoltura](https://chat.whatsapp.com/KaS0mSE7XyLB1PwR38KAzI)
-- [Filosofia](https://t.me/filosofia22_23) (TG)
 - [Geologia](https://t.me/+kwEFN-SAZ6w4YzI0) (TG)
 - [Global law and transnational legal studies](https://t.me/+mCkGgrVceThhNTE0) (TG)
 - [Fisica](https://chat.whatsapp.com/KHY5dzCHLQeHEr5j1LPFCM)
-- [Fisioterapia](https://chat.whatsapp.com/GIa2VtJ0LylGU0zSZm0DI9)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
-- [ICT](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO) 🔴
-    - [ICT](https://chat.whatsapp.com/CqNJR7lbsmd72YnmTJnAUV) 🔴
+- [Innovazione sociale, comunicazione e nuove tecnologie (ICT)](https://chat.whatsapp.com/El1sfgezE5q8JVip2G86PO)
+    - [Innovazione sociale, comunicazione e nuove tecnologie (ICT)](https://chat.whatsapp.com/JRkeE5IDewD0CqwZc2fKMt) 🔴
 - [Infermeristica](https://t.me/matricoleunito1) (TG)
 - [Infermieristica pediatrica](https://chat.whatsapp.com/DpoNvehHFN3KVrGrK5Hh1h)
 - [Lettere](https://t.me/+yQWFiON3hr4xYWQ0) (TG)
@@ -68,22 +59,15 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e culture per il turismo](https://t.me/+o3YFFrfAlk9hMTNk) (TG)
 - [Lingue e letterature moderne](https://t.me/+aLFIa5kSVaQ5OTQ8) (TG) 🔴
     - [Lingue e letterature moderne](https://chat.whatsapp.com/LpCuXf61ItxIoolN0EUmnn) 🔴
-- [Logopedia](https://chat.whatsapp.com/I8oc6GdpKOv0aHrhxHGzhC)
 - [Management dell'Informazione e della Comunicazione Aziendale](https://chat.whatsapp.com/Es1UaUfZ7GN1h0J7YUs5Ko)
-- [Matematica](https://chat.whatsapp.com/GuEBdTPTyWtJQvR2ggM6Qb)
-- [Matematica per la finanza e l’assicurazione](https://chat.whatsapp.com/FoTacr77TOVK6cw6t725OB)
 - [Mediazione linguistica](https://t.me/+temM4IKwqYA3NmQ0) (TG) 🔴
     - [Mediazione linguistica](https://chat.whatsapp.com/ItKXLjF6EbkJbs2AHfIuPU) 🔴
-- [Medicina veterinaria](https://chat.whatsapp.com/BDhMvD5eZ4QG4JK0y67oMd)
-- [Ostetricia](https://t.me/+5kM1dychYyY4ZTY0) (TG) 🔴
-    - [Ostetricia](https://chat.whatsapp.com/CWTcDoA5qDiL4D3ocO08wc) 🔴
+- [Ostetricia](https://t.me/+5kM1dychYyY4ZTY0) (TG)
 - [Politiche e servizi sociali](https://chat.whatsapp.com/JPIhQg2Oyz7GGMIr6sSoiD)
-- [Produzioni e gestione degli animali in allevamento e selvatici](https://chat.whatsapp.com/BdoWYwHCARbB2o7B50v9wU)
 - [Scienze biologiche](https://t.me/+d8tQ2CQ5cDViYTM0) (TG)
 - [Scienze dell'educazione](https://t.me/eduscienzto) (TG) 🔴
     - [Scienze dell'educazione](https://chat.whatsapp.com/FDWEFf2zmSeBb4k8vg8Gcf) 🔴
-- [Scienze della comunicazione](https://chat.whatsapp.com/EqS9q3t5a78BMLVwjmeQvC) (FULL)
-    - [Scienze della comunicazione](https://chat.whatsapp.com/CVYRpQWDRK2E3rjdVfo8Ga)
+- [Scienze della comunicazione](https://chat.whatsapp.com/CVYRpQWDRK2E3rjdVfo8Ga)
 - [Scienze della formazione primaria (Savigliano)](https://chat.whatsapp.com/ELr98Fm6wNG7ihaTpn8yx7)
 - [Scienze della formazione primaria (Collegno)](https://chat.whatsapp.com/JEJeK2lx7qF17JCDx7zKbK)
 - [Scienze e tecniche agrarie](https://chat.whatsapp.com/DW3TRD4zdkY0XrZA4kgK9y)
@@ -99,15 +83,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Scienze motorie (Asti)](https://chat.whatsapp.com/ElpzUlE0kwULRpWve6Nzax)
 - [Scienze naturali](https://t.me/SNUnito)
 - [Scienze pedagogiche](https://t.me/+L6HD9hGgtV02OWJk) (TG)
-- [Scienze politiche](https://chat.whatsapp.com/GDcaiQaEdds5XIA8tnMiAl) 🔴
-    - [Scienze politiche](https://chat.whatsapp.com/Lqt6m4Ix23i12ZH9X8F0pD) 🔴
-    - [Scienze politiche A-L](https://chat.whatsapp.com/GNg7DpYmXEd1v417B10mQx)
 - [Scienze strategiche](https://chat.whatsapp.com/CmrsUK6u2G32PtDTVCy4h8) 🔴
     - [Scienze strategiche](https://chat.whatsapp.com/B9atbOOyirqFEL2oUBsTqx) 🔴
 - [Scienze viticole ed enologiche](https://t.me/+4sQkRSZI9mM2YWQ0) (TG)
-- [Servizio sociale](https://chat.whatsapp.com/EDO4QKEYntG3BpwLDq8uvL) (UFFICIALE)
-    - [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ) 🔴
-    - [Servizio sociale](https://chat.whatsapp.com/KQcCDGK6Y0t5sq04i5zzKk) 🔴
+- [Servizio sociale](https://chat.whatsapp.com/L9xQv6mZ9X8G6OvQT6gbwJ)
     - [Servizio sociale](https://chat.whatsapp.com/HtGXFDkD6iEEqekg7PFqke) (Biella)
 - [Storia](https://t.me/storiaunito) (TG)
 - [Tecniche di laboratorio biomedico](https://t.me/+uxTL6C33GR43Mzlk) (TG)
@@ -118,17 +97,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔶 Laurea Magistrale 🔶**
 
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
-- [Area and global studies for International Cooperation](https://chat.whatsapp.com/FepWfBsfty30Rr6UirkBjE)
 - [Biologia dell'ambiente](https://chat.whatsapp.com/FNu75OgNOvLBMA1GUpHiB2)
 - [Biotecnologie industriali](https://chat.whatsapp.com/JLkro62bs4BF13ztOuhj89)
 - [Biotecnologie mediche](https://chat.whatsapp.com/JXHExxLHqVa1MwXmlu0NAD)
 - [Business administration](https://chat.whatsapp.com/IlniZ6WJzl3E8jSAI54yLm)
 - [CAM](https://chat.whatsapp.com/F4TxOmQZMDI0uD548mOJwm)
 - [Chimica clinica, forense e dello sport](https://chat.whatsapp.com/GxKBx6yMRZoHmEPkd9fAuc)
-- [Comunicazione e culture dei media](https://chat.whatsapp.com/JWFZCIEQaX6DEVrS17Bq4i)
-- [Comunicazione ICT e media](https://chat.whatsapp.com/GuZpDKX6v8v9uy2kq8TTOe)
-- [Comunicazione pubblica e politica](https://chat.whatsapp.com/IelVvP4nAUR2ToIbDYszeq) 🔴
-    - [Comunicazione pubblica e politica](https://chat.whatsapp.com/KFgAamX7zmNEUATd567izY) 🔴
+- [Comunicazione pubblica e politica](https://chat.whatsapp.com/KFgAamX7zmNEUATd567izY) 🔴
 - [Culture moderne comparate](https://chat.whatsapp.com/GLPjUMf9im0A9I6hAi4Qfp)
 - [Economia dell'ambiente, della cultura e del territorio](https://chat.whatsapp.com/EkqrHeYusw93lD2DSrh64V)
 - [Economia e management internazionale](https://t.me/economiaemanagementinternazional) (TG)
@@ -141,7 +116,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [ICT](https://t.me/ictmagistrale) (TG)
 - [Letteratura, Filologia e Linguistica italiana](https://chat.whatsapp.com/LToTH1HIhWM8I8sqoX9Xbrl)
 - [Language Technologies and Digital Humanities](https://chat.whatsapp.com/LDGTNAPegvP5sgpdGSXhca)
-- [Lingue dell'asia e dell'africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/ERkvhPx6HkX6aCUByx50PT)
 - [Lingue e letterature moderne](https://chat.whatsapp.com/CVw4h7zZzVI0BMSUlcow8r)
 - [Lingue straniere per la comunicazione internazionale LM-38](https://chat.whatsapp.com/BGK82L7vpC0KGJrsUlp1Rf)
 - [Metodi statistici ed economici per le decisioni](https://chat.whatsapp.com/Iky73jj1hUGCrDwZRO3juS)
@@ -153,8 +127,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Programmazione e gestione dei servizi educativi e formativi](https://t.me/+70-yTBQicLE2Yjhk) (TG)
 - [Scienze del governo](https://chat.whatsapp.com/BmF4L60X7HA0qGkx5dCYbu)
 - [Scienze della comunicazione e culture dei media](https://t.me/+uxmy_CBYyLsxNzI0) (TG)
-- [Scienze internazionali](https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w) 🔴
-    - [Scienze internazionali](https://chat.whatsapp.com/LDClhkE4olzL047saXdm8w) 🔴
 - [Scienze linguistiche](https://chat.whatsapp.com/DxCvFPGcAtG6qF9ilGL0ze)
 - [Sociologia](https://chat.whatsapp.com/EnGhsRcYZEhKhi6543qduk)
 - [Storia dell'arte](https://chat.whatsapp.com/FLmEXipvxB21uJmK6QzMcD)
@@ -169,14 +141,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Farmacia - Chimica e tecnologie farmaceutiche](https://chat.whatsapp.com/EyyBbqikq3cFuo8kjYe66T)
 - [Medicina](https://t.me/+duHqXx3FknZhNGU0) (TG)
     - [Canale A](https://chat.whatsapp.com/HcNuTBYGUIwEJnpgzuO8dx)
-    - [Canale B](http://chat.whatsapp.com/JOnig5ZsVRLCGY5IJ06x80)
-    - [Canale C](http://chat.whatsapp.com/EH3y1c7fKXw3bOJgYcXHso)
     - [Canale D](https://chat.whatsapp.com/C22voOqfmVTIP318El1ZCc)
-- [Medicine and surgery](https://chat.whatsapp.com/BAhIBCRqcfKLBM0H4T0HDp)
 - [Giurisprudenza](https://t.me/+akxqDbk03yQ0NTBk) (TG)
     - [Cuneo](https://chat.whatsapp.com/Fh6RCrMphLv6fNWEqzsf5i)
 - [Odontoiatria](https://chat.whatsapp.com/I6HGbdZjQaLA0IW6HVfmzN)
-
 
 
 <br>
@@ -184,7 +152,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔶 Altri gruppi 🔶**
 
 - [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
-- [Fisica Discord](https://discord.gg/gmxv5vS6)
 - [Mediatore digitale SCIDECOM](https://t.me/digitale_scidecom_unito) (TG)
 - [Percorso FIT 24 CFU](https://www.facebook.com/groups/1155286824573827/?ref=share) (FB)
 - [Percorso FIT 24 CFU](https://chat.whatsapp.com/BshxQAmKbOhBnzCGTOIQJR)

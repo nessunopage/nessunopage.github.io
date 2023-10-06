@@ -43,15 +43,19 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Corso C](https://t.me/+sTLVeLdipEs3ZWU8) (TG)
     - [Cuneo](https://t.me/+kIhHE28T-fg5YzA0) (TG)
 - [Economia e statistica](https://t.me/+ySkgWpgvsNwyZWI0) (TG)
-- [Economix analysis and policy](https://chat.whatsapp.com/KObAXRInIczIW60yFw0pHZ)
-- [Educazione professionale](https://chat.whatsapp.com/CjHOCk4M5SQKkGswc189Rc)
+- [Economic analysis and policy](https://chat.whatsapp.com/KObAXRInIczIW60yFw0pHZ)
 - [Filosofia](https://t.me/filosofia_unito) (TG)
 - [Fisica](https://chat.whatsapp.com/E3KrGz4BqWJ8ETgcCU07vA)
     - [Fisica](https://t.me/fisicaUNITO) (Generale) (TG)
 - [Global law](https://t.me/+53AUdmg2yUNjYTZk) (TG)
-- [Infermieristica AOU (generale)](https://t.me/infermieristicaaou23)
+- [Igiene dentale](https://chat.whatsapp.com/BuU6YF3RJcF2s6Hq7xvrZV)
+- [Infermieristica AOU (generale)](https://t.me/infermieristicaaou23) (TG)
     - [Infermieristica AOU](https://chat.whatsapp.com/DsGrOyNmAZw6AN9kkQqSp5) 🔴
     - [Infermieristica Cuneo](https://chat.whatsapp.com/B8b4IozVUM53GEpIaHfT4I)
+    - [Infermieristica Orbassano](https://chat.whatsapp.com/GzmlPdGRaR69TLYwyKUNyS)
+    - [Infermieristica Ivrea](https://t.me/+ITSUN6R9Q1kyODVk) (TG)
+    - [Infermieristica ASL](https://t.me/infermieristicaunitoasl) (TG)
+- [Infermieristica ediatrica](https://t.me/+I27qPJrf8HI3ZWI0) (TG)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [Innovazione sociale, comunicazione e nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
@@ -66,10 +70,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Management delle comunicazione e informazione aziendale](https://t.me/+tfLt09wIdm9lMzdk) (TG)
 - [Matematica](https://chat.whatsapp.com/BlG2I14rSmf758MhlU0B57)
 - [Matematica per la finanza e l’assicurazione](https://t.me/+LOcQ1MsvO4hiZDY0) (TG)
+- [Ortottica ed Assistenza Oftalmologica](https://t.me/+sdSX4CtlaCw0ODY0) (TG)
+- [Paleografia latina e diplomatica](https://chat.whatsapp.com/DPWfo0MelKt6oLvA4y64mK)
 - [Produzioni animali (TAVET e SIZOS)](https://chat.whatsapp.com/ITsdT3f4Ono9BfTFyd3Eij)
 - [Professioni sanitarie](https://t.me/professionisanitarieunito) (TG)
-- [Psicologia](https://t.me/+rFiesUrNQBRkMGVk) (TG)
-- [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
+- [Psicologia (scienze e tecniche psicologiche)](https://t.me/+rFiesUrNQBRkMGVk) (TG)
 - [Scienza dei materiali](https://chat.whatsapp.com/GSRKKGOrxdNE3iVUFl1TO3)
 - [Scienze biologiche](https://t.me/scienzebiologicheunito) (TG)
 - [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/EtxeJGQGB0vJVo6IQP4alS)
@@ -85,6 +90,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Scienze internazionali dello sviluppo e della cooperazione A-L](https://chat.whatsapp.com/GVc14FlEAxU2E1z4F4OWh3) 🔴 (Con rappresentanti)
     - [Scienze internazionali dello sviluppo e della cooperazione M-Z](https://chat.whatsapp.com/Ikp40Kjs9daGWBaQcxNGtS) 🔴 (Con rappresentanti)
 - [Scienze motorie](https://t.me/+lMn-2gp8GNBiMTA0) (TG)
+    - [Scienze motorie Asti](https://chat.whatsapp.com/IeVpUr6t80TIilUX0eHzX1)
 - [Scienze naturali](https://chat.whatsapp.com/EVDAPRvEXwH7mqKgzVzk19)
 - [Scienze politiche e sociali](https://chat.whatsapp.com/FjuoMcAu2NYBI8uShZrLoA)
     - [Scienze politiche e sociali A-L](https://chat.whatsapp.com/GlTtdOSisQDCdU4QlaiC8E) 🔴 (Con rappresentanti)
@@ -96,6 +102,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Sistemi zootecnici sostenibili](https://chat.whatsapp.com/ImQNmkLa0Sg4ePD2EYgrYG)
     - [Sistemi zootecnici sostenibili](https://chat.whatsapp.com/FDb5hDY4JI51s5n8t1csSI) 🔴
 - [Storia](https://t.me/matricole_unito_storia_2023_24) (TG)
+- [Tecniche della prevenzione nell’ambiente e nei luoghi di lavoro (TPALL)](https://chat.whatsapp.com/HFsl09EB5JQKqnb9XM7b6R)
 - [Tecnica della riabilitazione psichiatrica](https://chat.whatsapp.com/LEdDIidmhMw8yw0Y9uosyS)
 - [Tecniche di assistenza veterinaria](https://chat.whatsapp.com/DqP8z84c0YaDwgv9WIuTY2)
 - [Tecniche erboristiche](https://t.me/+jV7FzXpsWDcyNDM8) (TG)
@@ -133,10 +140,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e letterature moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG) (Con rappresentanti)
 - [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Psicologia clinica](https://t.me/+O3iiGhHpCjs3YTg0) (TG)
+- [Psicologia criminologica e forense](https://t.me/+bMRa8gOibJk0YjBk) (TG)
 - [Piscologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/JB8uFSjpWdJECgt0xydUKV)
 - [Politiche e servizi sociali](https://chat.whatsapp.com/Lje1YyRBhZW20aqUZPkD59)
     - [Politiche e servizi sociali](https://chat.whatsapp.com/HuWVdm1RDU3EPv4C2URKj3) 🔴 (Con rappresentanti)
-- [Scienze del corpo e della mente](https://t.me/scienzedelcorpoedellamente) (TG)
+- [Scienze del corpo e della mente](https://t.me/+Um8kkKUMUqs1YTI0) (TG)
 - [Scienze del governo](https://t.me/+-MSUy0tL7FIxOGU0) (TG)
 - [Scienze delle religioni](https://chat.whatsapp.com/KrWxohQI98nBCpmb92i7pj)
 - [Scienze internazionali (MENA)](https://chat.whatsapp.com/KlQ4CwX6XN67MIIvWbh57I)
@@ -149,6 +157,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Sociologia](https://chat.whatsapp.com/DuAGzIUIzKDDA0X2tXuqS0) 🔴 (Con rappresentanti)
 - [Stochastics and data science](https://t.me/+GQ3fyqHnfjo1NTA8) (TG)
 - [Scuola Universitaria Interfacoltà in Scienze Strategiche SUISS](https://chat.whatsapp.com/F984fLYFnUJAsjuFSfIjQd)
+- [Teorie e metodi della formazione](https://chat.whatsapp.com/FuSYCztlcZQ7dym1QLbHL6)
 - [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG) (Con rappresentanti)
 
 
@@ -156,6 +165,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
+- [Chimica e tecnologie farmaceutiche (CTF)](https://chat.whatsapp.com/HEAQZoRRc3O8f8NoBfldt1)
 - [Farmacia](https://chat.whatsapp.com/Lr0k8RpIC939OX1VDTlJVH)
 - [Giurisprudenza](https://chat.whatsapp.com/Hwtcw9LMHkuDgEEd1m0Cl3)
 - [Medicina e chirurgia](https://chat.whatsapp.com/GP1RWtv5TtpK6OTuUn9lHd)
@@ -166,8 +176,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Medicina veterinaria](https://chat.whatsapp.com/EgxmKpPVWBj6qQCzIRtTtH)
 - [Restauro Venaria Reale](https://chat.whatsapp.com/Gd2DhqNPLObLDettgf6JMy)
 - [Scienze della formazione primaria](https://t.me/+7Mi3hP0HN21lNjE8) (TG)
-
-
 
 
 
@@ -199,6 +207,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**06/10/23 |** Aggiunti gruppi per **Tecniche della prevenzione nell’ambiente e nei luoghi di lavoro (TPALL), Scienze motorie Asti, Paleografia latina e diplomatica, Chimica e tecnologie farmaceutiche (CTF), Infermieristica Orbassano, Infermieristica Ivrea, Infermieristica ASL, Ortottica ed Assistenza Oftalmologica, Infermieristica pediatrica, Teorie e metodi della formazione, Igiene dentale** <br>
 >**26/09/23 |** Aggiunti gruppi per **Business Administration, Antropologia culturale (con rappresentanti), Infermieristica AOU (generale), Infermieristica AOU, Infermieristica Cuneo, European Legal Studies, ICT (Facebook), Tecnica della riabilitazione psichiatrica** <br>
 >**20/09/23 |** Aggiunti gruppi per **Scienze forestali e ambientali, Tecniche di assistenza veterinaria, Scienze della formazione primaria, Sistemi zootecnici sostenibili (doppione), Business and management (doppione)** <br>
 >**18/09/23 |** Aggiunti gruppi per **Sistemi zootecnici sostenibili, Viticoltura ed enologia, Tecniche erboristiche, Innovazione sociale, comunicazione e nuove tecnologie ICT Cognomi AL e M-Z (con rappresentanti), Produzioni animali (TAVET e SIZOS), Cinema, arti e media (CAM), Biologia dell'ambiente, Scienze internazionali (peace and conflict studies), Scienze delle religioni, Fisica nucleare** <br>

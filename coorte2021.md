@@ -37,12 +37,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(Teleg
     - [Gruppo B](https://chat.whatsapp.com/CLcOL5Hy0RvKuMs9BxMQmI)
 - [Consulenza del Lavoro](https://chat.whatsapp.com/HH51DygJSiFBS3sdEaG1x7)
 - [Culture e letterature del mondo moderno](https://chat.whatsapp.com/DyqRPPGvWFwEbUAy0gukef)
-- [Diritto per le imprese e le istituzioni](https://chat.whatsapp.com/FIyJmxfiVvFK9m5o2UQrAc)
-- [Economia](https://t.me/economia_autogestito) (Ex. Economia e Commercio) (Telegram)
 - [Economia Aziendale](https://t.me/ecoaziendale_autogestito) (Telegram)
 - [Economia Aziendale](https://t.me/ecoazto_bot) (BOT Generale gruppi)
-- [Global Law](https://t.me/joinchat/TivfFBkpP3bxDZcwn101OA) (Telegram) 
-- [Rappresentante ICT](https://t.me/siaasss) (Telegram)
+- [Global Law](https://t.me/joinchat/TivfFBkpP3bxDZcwn101OA) (Telegram)
 - [Informatica](https://t.me/joinchat/UmWgshpk8MXD_Y4KvLyU8A) (Telegram)
 - [Lingue e culture per il turismo](https://chat.whatsapp.com/CyB1m7bRiMI0QXdB0JqOMj)
 - [Matematica](https://chat.whatsapp.com/HmG5OhvEWqqHaFggRhXkp2)
@@ -61,14 +58,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(Teleg
 - [Archeologia e storia antica](https://t.me/DaimonArya) LM-2
 - [CAM - Cinema, arti della scena, musica e media](https://www.facebook.com/groups/1203404990038740/?ref=share) LM-65 (Facebook)
 - [CAM - Cinema, arti della scena, musica e media](https://chat.whatsapp.com/Gnf6MfpkZ9M5Ht4rLc8tc9) LM-65
-- [Magistrali chimica](https://m.facebook.com/391496228246970/posts/741507813245808/?extid=rpDsAySJdY8UbFY7&d=n)
 - [CIME - Comunicazione, ICT e media](https://www.facebook.com/groups/777004643127452) LM-59 (Facebook)
 - [Comunicazione pubblica e politica](https://t.me/joinchat/I_-TjxrP3jZCnEbRFdDTZA) LM-59 (Telegram)
-- [Direzione d’impresa, marketing e strategia](https://chat.whatsapp.com/HltDuez9d2nAnaESIQCsA7) (FULL)
-    - [Direzione d’impresa, marketing e strategia](https://t.me/joinchat/RA1VlRqh2P2kvcYC69X3Nw) (Telegram)
-- [Finanza aziendale e mercati finanziari](https://t.me/joinchat/TihHCcKIpmRui7cA) (Generale) (Telegram)
 - [Lingue dell'Asia e dell'Africa](https://t.me/joinchat/LKkYfBOs5RSpwFfRq_L7ug) LM-38 (Telegram)
-- [Lingue straniere per la comunicazione internazionale](https://chat.whatsapp.com/HQu7hRNhWql2QNaW3Ygmv9) LM-38
 - [Scienze Storiche](https://chat.whatsapp.com/LtlaPtrW5AuKJQf9U4uktn)
 - [Scienze viticole ed enologiche](https://chat.whatsapp.com/JLKEGtw7UrJFnmqjxxlYpy) LM-70
 - [Sociologia e ricerca sociale](https://t.me/joinchat/SC_e_EzeSFQnJus4ufVdWQ) LM-88 (Telegram)
@@ -78,7 +70,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(Teleg
 
 **🔷 Laurea a Ciclo Unico 🔷**
 
-- [Contatto Giurisprudenza](https://t.me/Giurisprudenza2021)
 
 <br>
 
