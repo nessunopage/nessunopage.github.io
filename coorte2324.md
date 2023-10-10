@@ -121,6 +121,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Archeologia e storia antica](https://chat.whatsapp.com/GW2YUmOYT9dJPm6eegyVfM)
 - [Area and global studies for international cooperation (AGIC)](https://chat.whatsapp.com/GO3akKkEBoKENiFYCxdxG7)
 - [Biologia dell'ambiente](https://chat.whatsapp.com/Hn7m83r7FXw9JMs9MrUCZE)
+    - [Biologia dell'ambiente](https://t.me/+v2tdlnTFELEyMGY0) 🔴 (TG)
 - [Business Administration](https://chat.whatsapp.com/K7MNfVtzRUs6kjdtuUBVNU)
 - [Cinema, arti e media (CAM)](https://chat.whatsapp.com/EHXsAIh8cngLLNT4k9VmtB)
 - [Comunicazione, ICT e media CIME](https://t.me/+fi9IgbU5bEBhMTA0) (TG)
