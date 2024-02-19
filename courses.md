@@ -44,12 +44,14 @@
 - Software Engineering: Advanced Architectures and Techniques | 30/30 L
 - Conceptual Modelling for the Semantic Web | 30/30 L
 - Integration for Semantic Technologies course | 30/30 L
-<!-- - Data Mining | to-do 
+<!-- to-do section
 - Mobile Device Programming | to-do
 - Natural Language Technologies | to-do
 -->
 
 >**Exams weighted average:** 29.346/30<br>
 >**Current final examination starting grade:** 108.902/110<br>
+
+<br>
 
 Note: “L” on the right of the exams grades means “Cum Laude”
