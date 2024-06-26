@@ -44,13 +44,18 @@
 - Software Engineering: Advanced Architectures and Techniques | 30/30 L
 - Conceptual Modelling for the Semantic Web | 30/30 L
 - Integration for Semantic Technologies course | 30/30 L
+- Mobile Device Programming | 30/30
+- Natural Language Technologies | to-finish
+    - Natural Language Technologies p.1 | 30/30
+    - Natural Language Technologies p.2 | to-do
+    - Natural Language Technologies p.3 | 30/30 L
 <!-- to-do section
-- Mobile Device Programming | to-do
+
 - Natural Language Technologies | to-do
 -->
 
->**Exams weighted average:** 29.346/30<br>
->**Current final examination starting grade:** 108.902/110<br>
+>**Exams weighted average:** 29.355/30<br>
+>**Current final examination starting grade:** 108.934/110<br>
 
 <br>
 
