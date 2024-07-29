@@ -45,17 +45,10 @@
 - Conceptual Modelling for the Semantic Web | 30/30 L
 - Integration for Semantic Technologies course | 30/30 L
 - Mobile Device Programming | 30/30
-- Natural Language Technologies | to-finish
-    - Natural Language Technologies p.1 | 30/30
-    - Natural Language Technologies p.2 | to-do
-    - Natural Language Technologies p.3 | 30/30 L
-<!-- to-do section
+- Natural Language Technologies | 30/30 L
 
-- Natural Language Technologies | to-do
--->
-
->**Exams weighted average:** 29.355/30<br>
->**Current final examination starting grade:** 108.934/110<br>
+>**Exams weighted average:** 29.452/30<br>
+>**Current final examination starting grade:** 109.590/110<br>
 
 <br>
 
