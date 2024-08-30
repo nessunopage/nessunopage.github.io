@@ -22,11 +22,24 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea Triennale 🔷**
 
+- [Amministrazione Aziendale](https://chat.whatsapp.com/J2Nn1T4npdY1S6iwl9byuS)
+- [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
+- [Lingue e culture per il turismo (L-15)](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
+- [Lingue e letterature moderne (L-11)](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
+- [Scienze della mediazione linguistica (L-12)](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
+
 
 
 <br>
 
 **🔶 Laurea Magistrale 🔶**
+
+- [English and American Studies (EAS) LM-37](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
+- [Scienze internazionali (LM-52)](https://chat.whatsapp.com/LR1qXZciFd3Cza0h3mkBcS)
+- [Lingue e letterature moderne (LM-37)](https://t.me/+jG9IxuXyzDFkODNk) (TG)
+- [Lingue per lo sviluppo turistico del territorio (LM-38)](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
+- [Lingue straniere per la comunicazione internazionale (LM-38)](https://t.me/+r6b7l-jnKidlZjM8) (TG)
+- [Traduzione (LM-94)](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
 
 <br>
@@ -53,6 +66,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**30/08/24 |** Aggiunti gruppi per: **Amministrazione Aziendale, Scienze internazionali (LM-52), Lingue e letterature moderne (L-11), Scienze della mediazione linguistica (L-12), Lingue e culture per il turismo (L-15), Lingue e letterature moderne (LM-37), English and American Studies (EAS) LM-37, Lingue per lo sviluppo turistico del territorio (LM-38), Lingue straniere per la comunicazione internazionale (LM-38), Traduzione (LM-94)**<br>
 >**30/08/24 |** Creata raccolta<br>
 
 >**🔺 Cronologia eliminata da --/--/-- a  --/--/-- 🔺**<br>

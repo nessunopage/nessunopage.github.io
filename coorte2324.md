@@ -61,7 +61,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Innovazione sociale, comunicazione e nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
     - [Cognomi A-L](https://chat.whatsapp.com/HW8Wfr4pqaJ6u06GqUrtz5) (Con rappresentanti)
     - [Cognomi M-Z](https://chat.whatsapp.com/JYgs7P0QHKEAQASbLYxyPy) (Con rappresentanti)
-    - [Innovazione sociale, comunicazione e nuove tecnologie ICT](https://t.me/+HETj6cpJgU40NDk0) 🔴 (TG)
     - [ICT (Facebook)](https://www.facebook.com/groups/257169333297288)
 - [Lettere](https://chat.whatsapp.com/Gu3cEayRNCyHJm3LaSXEPY)
 - [Lingue e culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM)
