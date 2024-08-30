@@ -39,6 +39,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e letterature moderne (LM-37)](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue per lo sviluppo turistico del territorio (LM-38)](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
 - [Lingue straniere per la comunicazione internazionale (LM-38)](https://t.me/+r6b7l-jnKidlZjM8) (TG)
+- [Scienze Linguistiche LM-39](https://chat.whatsapp.com/Eh55SH07SGk0NmoMSLIWjf)
 - [Traduzione (LM-94)](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
 
@@ -70,7 +71,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**30/08/24 |** Aggiunti gruppi per: **Amministrazione Aziendale, Scienze internazionali (LM-52), Lingue e letterature moderne (L-11), Scienze della mediazione linguistica (L-12), Lingue e culture per il turismo (L-15), Lingue e letterature moderne (LM-37), English and American Studies (EAS) LM-37, Lingue per lo sviluppo turistico del territorio (LM-38), Lingue straniere per la comunicazione internazionale (LM-38), Traduzione (LM-94), Odontoiatria e protesi dentaria**<br>
+>**30/08/24 |** Aggiunti gruppi per: **Amministrazione Aziendale, Scienze internazionali (LM-52), Lingue e letterature moderne (L-11), Scienze della mediazione linguistica (L-12), Lingue e culture per il turismo (L-15), Lingue e letterature moderne (LM-37), English and American Studies (EAS) LM-37, Lingue per lo sviluppo turistico del territorio (LM-38), Lingue straniere per la comunicazione internazionale (LM-38), Traduzione (LM-94), Odontoiatria e protesi dentaria, Scienze Linguistiche LM-39**<br>
 >**30/08/24 |** Creata raccolta<br>
 
 >**🔺 Cronologia eliminata da --/--/-- a  --/--/-- 🔺**<br>
