@@ -54,6 +54,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Altri gruppi 🔶**
 
+- [Annunci libri/appunti/case](https://t.me/annunci_unito) (TG)
+
 <br>
 
 >**⚠️ ATTENZIONE ⚠️**: Se vedi "🔴" significa che c'è un **gruppo doppione** (che brutto!) se fai parte di uno dei gruppi cercate di **spostarvi su uno unico** così da rendere più **comoda** la comunicazione.<br>
