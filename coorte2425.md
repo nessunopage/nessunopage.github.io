@@ -46,6 +46,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea a Ciclo Unico 🔷**
 
+- [Odontoiatria e protesi dentaria](https://chat.whatsapp.com/EawJPOoMe70D2pO3SVN7Q7)
+
 
 
 <br>
@@ -66,7 +68,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
->**30/08/24 |** Aggiunti gruppi per: **Amministrazione Aziendale, Scienze internazionali (LM-52), Lingue e letterature moderne (L-11), Scienze della mediazione linguistica (L-12), Lingue e culture per il turismo (L-15), Lingue e letterature moderne (LM-37), English and American Studies (EAS) LM-37, Lingue per lo sviluppo turistico del territorio (LM-38), Lingue straniere per la comunicazione internazionale (LM-38), Traduzione (LM-94)**<br>
+>**30/08/24 |** Aggiunti gruppi per: **Amministrazione Aziendale, Scienze internazionali (LM-52), Lingue e letterature moderne (L-11), Scienze della mediazione linguistica (L-12), Lingue e culture per il turismo (L-15), Lingue e letterature moderne (LM-37), English and American Studies (EAS) LM-37, Lingue per lo sviluppo turistico del territorio (LM-38), Lingue straniere per la comunicazione internazionale (LM-38), Traduzione (LM-94), Odontoiatria e protesi dentaria**<br>
 >**30/08/24 |** Creata raccolta<br>
 
 >**🔺 Cronologia eliminata da --/--/-- a  --/--/-- 🔺**<br>
