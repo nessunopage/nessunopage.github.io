@@ -55,7 +55,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
     - [Infermieristica Orbassano](https://chat.whatsapp.com/GzmlPdGRaR69TLYwyKUNyS)
     - [Infermieristica Ivrea](https://t.me/+ITSUN6R9Q1kyODVk) (TG)
     - [Infermieristica ASL](https://t.me/infermieristicaunitoasl) (TG)
-- [Infermieristica ediatrica](https://t.me/+I27qPJrf8HI3ZWI0) (TG)
+- [Infermieristica pediatrica](https://t.me/+I27qPJrf8HI3ZWI0) (TG)
 - [Informatica](https://bit.ly/3RLUMqI) (TG)
     - [Raccolta gruppi](https://bit.ly/3A2N5nR)
 - [Innovazione sociale, comunicazione e nuove tecnologie ICT](https://chat.whatsapp.com/FrQA7p79SIG2yhQPdQTSud)
