@@ -38,7 +38,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Filosofia](https://chat.whatsapp.com/GU3gmOtg9Yd8MPSvOpSQs8)
 - [Global Law](https://chat.whatsapp.com/JVp3bY61KTTKzBc9YWa1nb)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/Inup7Qm2ej33hJPF0hj3DY) 🔴
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+lBT_jqmLr9owYzZk) 🔴
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+lBT_jqmLr9owYzZk) (TG) 🔴
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Lettere](https://chat.whatsapp.com/DIQwJYguEJfAZhEknTHooT)
 - [Lingue e culture per il turismo (L-15)](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
