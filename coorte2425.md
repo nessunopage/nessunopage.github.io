@@ -28,6 +28,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Amministrazione Aziendale](https://chat.whatsapp.com/J2Nn1T4npdY1S6iwl9byuS)
 - [Beni culturali](https://chat.whatsapp.com/Che8WWa1M2X0cf6WRSfoTY)
+- [Biotecnologie](https://chat.whatsapp.com/BWoLjX4RrmvIZ62oFaGZzb)
 - [Business and management](https://chat.whatsapp.com/G48XAMD87Xd8olh2htZpxV)
 - [Comunicazione interculturale](https://chat.whatsapp.com/LSjUNFuvaNcABHA7rWahTL)
 - [Consulenza del lavoro](https://chat.whatsapp.com/KVi833KFnP8Kh9CTEP0BZD)
