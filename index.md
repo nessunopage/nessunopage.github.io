@@ -9,6 +9,7 @@
 
 >Se hai un **link** da aggiungere o vuoi segnalare una **modifica/rimozione/suggerimento** usa questo [rapido form](https://rebrand.ly/form-gruppi-unito)<br><br>
 
+### ⚠️ **<span style="color:red">ATTENZIONE</span>** ⚠️:  **GRUPPO MATRICOLE GENERALE: https://t.me/unito_mat**<br>
 
 - [Coorte 2024/25](https://nessunopage.github.io/coorte2425)
 - [Coorte 2023/24](https://rebrand.ly/unito-links-23-24)
