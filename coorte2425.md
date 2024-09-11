@@ -32,10 +32,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Business and management](https://chat.whatsapp.com/G48XAMD87Xd8olh2htZpxV)
 - [Comunicazione interculturale](https://chat.whatsapp.com/LSjUNFuvaNcABHA7rWahTL)
 - [Consulenza del lavoro](https://chat.whatsapp.com/KVi833KFnP8Kh9CTEP0BZD)
+- [DAMS](https://chat.whatsapp.com/Bu6Q9Hnnr8t9UKKecCbqNc)
 - [Diritto Agroalimentare](https://chat.whatsapp.com/Gf5hQ3d3sPEFBfg2vzIQOR)
 - [Diritto per le imprese e le istituzioni](https://chat.whatsapp.com/Ck3iyrX5tZG7uncijmaKDY)
 - [Economia aziendale](https://chat.whatsapp.com/CgnyDhGzvjcIB0ji4kduCq)
 - [Economia Aziendale Canale A](https://chat.whatsapp.com/CXe53PtcpBXEpu88ltWLXv)
+- [Economia aziendale Canale B](https://chat.whatsapp.com/EKpb0ImLjtJ9yO54AggW7U)
+- [Economia aziendale Canale C](https://chat.whatsapp.com/KXKQheroZ7mEgU7CcAg2tN)
 - [Economia e commercio](https://chat.whatsapp.com/J5SNLYeNyuN0V2DzI38rpx)
 - [Economia e data scienze](https://chat.whatsapp.com/FOwgosSYXxc8roY2IIXj9w)
 - [Economia statistica](https://chat.whatsapp.com/FbxsGngKBw6CJdYu46ok9i)
@@ -76,6 +79,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Artificial intelligence for biomedicine and healtcare (AIBH)](https://t.me/+UqEzJYGCLkMxMGVk) (TG)
 - [Biotecnologie mediche](https://chat.whatsapp.com/KrECSmn4I2sBhMDKI9a5rT)
 - [Biotechnology for neuroscience](https://chat.whatsapp.com/KfFcXa0DPAFGBS7oq2petD)
+- [Chimica clinica, forense e dello sport](https://chat.whatsapp.com/IoEul6Lvz4V4r7JpcX1CyF)
 - [Comunicazione, ICT e media](https://chat.whatsapp.com/EzTUSj9G8tq3KqHTsw3Pc8)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/BF889XZKsERCgM4EOZBtG7)
 - [Direzione d'impresa](https://chat.whatsapp.com/LVBnYxFjNyt29AFHHCPjZa)
@@ -111,6 +115,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/Bw67x8iRiki7OnSdG9nIse)
 - [Scienze internazionali](https://chat.whatsapp.com/GbCW22JdVVfDGFqYAI6lWG)
 - [Scienze Linguistiche LM-39](https://chat.whatsapp.com/Eh55SH07SGk0NmoMSLIWjf)
+- [Scienze strategiche](https://chat.whatsapp.com/GOyb2cbVTsu7jmI5f5eZNZ)
 - [Sociologia](https://chat.whatsapp.com/GEI4lnRmgfTK1wyWs8blmU)
 - [Stochastics and Data Science](https://chat.whatsapp.com/KjxBW0olULDEW48i0YFwwx) 🔴
 - [Stochastics and Data Science](https://chat.whatsapp.com/H8l3jLzvdHf9L8QOpoSQBc) 🔴
@@ -147,8 +152,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 ***
 
 ### ⇊ *Changelog* ⇊
-
->**11/09/24 |** Aggiunti gruppi per: **Scienze dell'educazione (Savigliano), Economia Aziendale Canale A, Fisica, Stochastics and Data Science, Medicina e Chirurgia**<br>
+>**11/09/24 |** Aggiunti gruppi per: **Scienze dell'educazione (Savigliano), Economia Aziendale Canale A, Fisica, Stochastics and Data Science, Medicina e Chirurgia, Scienze strategiche, Chimica clinica, forense e dello sport, Economia aziendale Canale C, Economia aziendale Canale B**<br>
 >**04/09/24 |** Aggiunti gruppi per: **Amministrazione (e controllo) aziendale, Biotechnological and chemical sciences in diagnostics, DAMS, lingue dell'Asia e Africa per la cooperazione internazionale, Scienze motorie, Scienze e Tecnologie Agrarie, Stochastics and Data Science, Filosofia (LM-78), Odontoiatria e protesi dentaria (LM-46), Informatica (magistrale)**<br>
 >**31/08/24 |** Aggiunti gruppi per: **Filosofia, Scienze giuridiche e amministrative, Matematica (L-35), Matematica per l'economia, finanza e assicurazione, Matematica magistrale (L-40), Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT), Beni Culturali, Scienze Politiche e sociali, Scienze internazionali, Comunicazione interculturale, ICT, Scienze del governo, Comunicazione pubblica e politica, Scienze internazionali, Antropologia ed etnologia, Global studies for International cooperation, Scienze strategiche, Comunicazione, ICT e media, Sociologia, Servizio sociale, Economic analysis and policy, Politiche e servizi sociali, Scienze strategiche, Servizio sociale di Biella, Scienze del corpo e della mente, Psicologia criminologica e forense, Psicologia clinica, Scienze e tecniche psicologiche, Psicologia del lavoro, Scienze del diritto italiano ed Europeo, Giurisprudenza, Global Law, Diritto per le imprese e le istituzioni, Consulenza del lavoro, European Legal Studies, Scienze amministrative e giuridiche, Diritto Agroalimentare, Giurisprudenza Cuneo, Scienze amministrative e consulenza del lavoro (Sagop), Studi giuridici europei (fa riferimento ad European Legal Studies), Scienze dell'amministrazione, Economia aziendale, Economia e data scienze, Amministrazione (e controllo) aziendale, Economia e management, Direzione d'impresa, Economia e commercio, Business and management, Economia statistica, Quantitative finance and insurance, Professioni contabili, International accounting, Finanza aziendale, Economics, Storia, Filosofia, DAMS, Scienze della comunicazione, Lettere, Beni culturali, Tecniche di assistenza veterinaria, Artificial intelligence for biomedicine and healtcare (AIBH), Biotecnologie mediche, Molecular biotechnology - translational, Molecular biotechnology - Drug discovery, Biotechnology for neuroscience, Biotechnological and chemical sciences in diagnostics, lingue dell'Asia e Africa per la cooperazione internazionale, Lingue e culture per il turismo, Scienze della mediazione linguistica, Lingue straniere per comunicazione internazionale, Archeologia e storia antica, Letteratura, filologia e linguistica italiana, Scienze della formazione, English and American Studies, Scienze internazionali, dello sviluppo e della cooperazione (SISCO)**<br>
 >**30/08/24 |** Aggiunti gruppi per: **Amministrazione Aziendale, Scienze internazionali (LM-52), Lingue e letterature moderne (L-11), Scienze della mediazione linguistica (L-12), Lingue e culture per il turismo (L-15), Lingue e letterature moderne (LM-37), English and American Studies (EAS) LM-37, Lingue per lo sviluppo turistico del territorio (LM-38), Lingue straniere per la comunicazione internazionale (LM-38), Traduzione (LM-94), Odontoiatria e protesi dentaria, Scienze Linguistiche LM-39**<br>
