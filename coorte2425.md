@@ -5,7 +5,7 @@
 
 > Lista dei **gruppi matricole** conosciuti per i **Corsi di Laurea dell'Università di Torino** (**per immatricolati nel 2024/25**).<br><br>
 
-### ⚠️ **<span style="color:red">ATTENZIONE</span>** ⚠️:  **GRUPPO MATRICOLE GENERALE: https://t.me/unito_mat**<br>
+### ⚠️ **<span style="color:red">ATTENZIONE</span>** ⚠️:  **GRUPPO MATRICOLE E INFORMAZIONI GENERALE: https://t.me/unito_mat**<br>
 
 ### ⚠️ **<span style="color:red">ATTENZIONE</span>** ⚠️:  **Non sono stati segnalati e non ho a disposizione altri link di gruppi al momento.** Nel caso di **eventuali nuovi link** questa pagina verrà **aggiornata**. **Non gestisco direttamente i gruppi!**<br>
 
