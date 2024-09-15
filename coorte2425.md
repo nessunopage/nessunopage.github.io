@@ -45,15 +45,16 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Filosofia](https://chat.whatsapp.com/GU3gmOtg9Yd8MPSvOpSQs8)
 - [Fisica](https://t.me/+G6gQOttS8us2Y2I8) (TG)
 - [Global Law](https://chat.whatsapp.com/JVp3bY61KTTKzBc9YWa1nb)
-- [ICT](https://chat.whatsapp.com/Inup7Qm2ej33hJPF0hj3DY)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/Inup7Qm2ej33hJPF0hj3DY)
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/Inup7Qm2ej33hJPF0hj3DY) 🔴
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+lBT_jqmLr9owYzZk) (TG) 🔴
 - [Lettere](https://chat.whatsapp.com/DIQwJYguEJfAZhEknTHooT)
 - [Lingue e culture per il turismo (L-15)](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e letterature moderne (L-11)](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Lingue straniere per comunicazione internazionale](https://chat.whatsapp.com/JsDhpsBWktvEGzUmpa4pbM)
 - [Matematica per l'economia, finanza e assicurazione](https://chat.whatsapp.com/LMBZX89OM5nJtu1ONwblxA)
 - [Matematica (L-35)](https://chat.whatsapp.com/Hl2hmR9gE9h8nKTvvZ10Lr)
+- [Scienze biologiche (biologia)](https://t.me/uniToBiologiaPrimoAnno) (TG)
 - [Scienze della comunicazione](https://chat.whatsapp.com/Ep1M0CU546kFvTErNhFfAM)
 - [Scienze della formazione](https://chat.whatsapp.com/CBooK4zzUw6G7n8rozR7JX)
 - [Scienze della mediazione linguistica (L-12)](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
@@ -77,6 +78,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Antropologia ed etnologia](https://chat.whatsapp.com/FCQRdcD3qib68hgw7bsVLe)
 - [Artificial intelligence for biomedicine and healtcare (AIBH)](https://t.me/+UqEzJYGCLkMxMGVk) (TG)
+- [Biotechnological and chemical sciences in diagnostics](https://chat.whatsapp.com/DWcUXDiPsp7GT2galyU1Lz)
 - [Biotecnologie mediche](https://chat.whatsapp.com/KrECSmn4I2sBhMDKI9a5rT)
 - [Biotechnology for neuroscience](https://chat.whatsapp.com/KfFcXa0DPAFGBS7oq2petD)
 - [Chimica clinica, forense e dello sport](https://chat.whatsapp.com/IoEul6Lvz4V4r7JpcX1CyF)
@@ -94,8 +96,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+lBT_jqmLr9owYzZk) (TG)
 - [International accounting](https://chat.whatsapp.com/D0nXbDYCSge2nT1QiAF9Ui)
-- [Laurea magistrale in Scienze internazionali (LM-52)](https://chat.whatsapp.com/LR1qXZciFd3Cza0h3mkBcS)
+- [Languages Technologies and Digital Humanities](https://t.me/+DhlxyYtQuYBkNTlk)
+- [Scienze internazionali (LM-52)](https://chat.whatsapp.com/LR1qXZciFd3Cza0h3mkBcS)
 - [Letteratura, filologia e linguistica italiana](https://rebrand.ly/form-gruppi-unito)
+- [Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/Lf0KiUpDTRC8DVT2W6A5dm) 🔴
+- [Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/ISkjblhpxKiLO4ykL8Syh7) 🔴
 - [Lingue e letterature moderne (LM-37)](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue per lo sviluppo turistico del territorio (LM-38)](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
 - [Lingue straniere per la comunicazione internazionale (LM-38)](https://t.me/+r6b7l-jnKidlZjM8) (TG)
@@ -112,7 +117,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze amministrative e giuridiche](https://chat.whatsapp.com/JlsjjApmof54RkmCjfgCSk)
 - [Scienze del corpo e della mente](https://chat.whatsapp.com/BywWW7sbfB5InsNtz48MwN)
 - [Scienze del governo](https://chat.whatsapp.com/HWqoMUU8BJFIv6ME7IjXby)
-- [Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/Bw67x8iRiki7OnSdG9nIse)
+- [Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/IWUC1qbp4Tq7aNa7dKeYJ3) 🔴
+- [Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/Bw67x8iRiki7OnSdG9nIse) 🔴
 - [Scienze internazionali](https://chat.whatsapp.com/GbCW22JdVVfDGFqYAI6lWG)
 - [Scienze Linguistiche LM-39](https://chat.whatsapp.com/Eh55SH07SGk0NmoMSLIWjf)
 - [Scienze strategiche](https://chat.whatsapp.com/GOyb2cbVTsu7jmI5f5eZNZ)
@@ -126,11 +132,14 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea a Ciclo Unico 🔷**
 
+**🔷 Laurea a Ciclo Unico 🔷**
+
 - [Giurisprudenza](https://chat.whatsapp.com/K8nfo5uLnMy85qlRQPtZ8W)
 - [Giurisprudenza Cuneo](https://chat.whatsapp.com/FS1Lpsy04DF0HLLoivu7IU)
-- [Odontoiatria e protesi dentaria (LM-46)](https://chat.whatsapp.com/EawJPOoMe70D2pO3SVN7Q7)
 - [Medicina e Chirurgia](https://t.me/+FrOC2SXMpp85MzNk) (TG) 🔴
 - [Medicina e Chirurgia](https://chat.whatsapp.com/HB0kGR4JfeoKmsoefQgQR4) 🔴
+- [Medicina e Chirurgia](https://chat.whatsapp.com/ErrmVAYjwrd6aWPKSb0ezE) 🔴
+- [Odontoiatria e protesi dentaria (LM-46)](https://chat.whatsapp.com/EawJPOoMe70D2pO3SVN7Q7)
 
 
 <br>
@@ -152,6 +161,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 ***
 
 ### ⇊ *Changelog* ⇊
+
+>**15/09/24 |** Aggiunti (o aggiornati) gruppi per: **Biotechnological and chemical sciences in diagnostics, Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale, Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp), Scienze biologiche (biologia), Languages Technologies and Digital Humanities, Medicina e Chirurgia**<br>
 >**11/09/24 |** Aggiunti gruppi per: **Scienze dell'educazione (Savigliano), Economia Aziendale Canale A, Fisica, Stochastics and Data Science, Medicina e Chirurgia, Scienze strategiche, Chimica clinica, forense e dello sport, Economia aziendale Canale C, Economia aziendale Canale B**<br>
 >**04/09/24 |** Aggiunti gruppi per: **Amministrazione (e controllo) aziendale, Biotechnological and chemical sciences in diagnostics, DAMS, lingue dell'Asia e Africa per la cooperazione internazionale, Scienze motorie, Scienze e Tecnologie Agrarie, Stochastics and Data Science, Filosofia (LM-78), Odontoiatria e protesi dentaria (LM-46), Informatica (magistrale)**<br>
 >**31/08/24 |** Aggiunti gruppi per: **Filosofia, Scienze giuridiche e amministrative, Matematica (L-35), Matematica per l'economia, finanza e assicurazione, Matematica magistrale (L-40), Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT), Beni Culturali, Scienze Politiche e sociali, Scienze internazionali, Comunicazione interculturale, ICT, Scienze del governo, Comunicazione pubblica e politica, Scienze internazionali, Antropologia ed etnologia, Global studies for International cooperation, Scienze strategiche, Comunicazione, ICT e media, Sociologia, Servizio sociale, Economic analysis and policy, Politiche e servizi sociali, Scienze strategiche, Servizio sociale di Biella, Scienze del corpo e della mente, Psicologia criminologica e forense, Psicologia clinica, Scienze e tecniche psicologiche, Psicologia del lavoro, Scienze del diritto italiano ed Europeo, Giurisprudenza, Global Law, Diritto per le imprese e le istituzioni, Consulenza del lavoro, European Legal Studies, Scienze amministrative e giuridiche, Diritto Agroalimentare, Giurisprudenza Cuneo, Scienze amministrative e consulenza del lavoro (Sagop), Studi giuridici europei (fa riferimento ad European Legal Studies), Scienze dell'amministrazione, Economia aziendale, Economia e data scienze, Amministrazione (e controllo) aziendale, Economia e management, Direzione d'impresa, Economia e commercio, Business and management, Economia statistica, Quantitative finance and insurance, Professioni contabili, International accounting, Finanza aziendale, Economics, Storia, Filosofia, DAMS, Scienze della comunicazione, Lettere, Beni culturali, Tecniche di assistenza veterinaria, Artificial intelligence for biomedicine and healtcare (AIBH), Biotecnologie mediche, Molecular biotechnology - translational, Molecular biotechnology - Drug discovery, Biotechnology for neuroscience, Biotechnological and chemical sciences in diagnostics, lingue dell'Asia e Africa per la cooperazione internazionale, Lingue e culture per il turismo, Scienze della mediazione linguistica, Lingue straniere per comunicazione internazionale, Archeologia e storia antica, Letteratura, filologia e linguistica italiana, Scienze della formazione, English and American Studies, Scienze internazionali, dello sviluppo e della cooperazione (SISCO)**<br>
