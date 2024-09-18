@@ -27,40 +27,41 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea Triennale 🔷**
 
 - [Amministrazione Aziendale](https://chat.whatsapp.com/J2Nn1T4npdY1S6iwl9byuS)
-- [Beni culturali](https://chat.whatsapp.com/Che8WWa1M2X0cf6WRSfoTY)
+- [Beni culturali](https://chat.whatsapp.com/Ju9ZiNRPqqnFHsv7Mzkkun)
 - [Biotecnologie](https://chat.whatsapp.com/BWoLjX4RrmvIZ62oFaGZzb)
 - [Business and management](https://chat.whatsapp.com/G48XAMD87Xd8olh2htZpxV)
 - [Comunicazione interculturale](https://chat.whatsapp.com/LSjUNFuvaNcABHA7rWahTL)
 - [Consulenza del lavoro](https://chat.whatsapp.com/KVi833KFnP8Kh9CTEP0BZD)
-- [DAMS](https://chat.whatsapp.com/Bu6Q9Hnnr8t9UKKecCbqNc)
+- [DAMS](https://chat.whatsapp.com/IsHlx0sk2QME5IcQcmBa6l)
 - [Diritto Agroalimentare](https://chat.whatsapp.com/Gf5hQ3d3sPEFBfg2vzIQOR)
 - [Diritto per le imprese e le istituzioni](https://chat.whatsapp.com/Ck3iyrX5tZG7uncijmaKDY)
-- [Economia aziendale](https://chat.whatsapp.com/CgnyDhGzvjcIB0ji4kduCq)
+- [Economia aziendale](https://chat.whatsapp.com/HE7PFVaVJEQDD9iRYopqfX)
 - [Economia Aziendale Canale A](https://chat.whatsapp.com/CXe53PtcpBXEpu88ltWLXv)
 - [Economia aziendale Canale B](https://chat.whatsapp.com/EKpb0ImLjtJ9yO54AggW7U)
 - [Economia aziendale Canale C](https://chat.whatsapp.com/KXKQheroZ7mEgU7CcAg2tN)
-- [Economia e commercio](https://chat.whatsapp.com/J5SNLYeNyuN0V2DzI38rpx)
+- [Economia e commercio](https://chat.whatsapp.com/BZNibv3uSJdKjQkjjPmktr)
 - [Economia e data scienze](https://chat.whatsapp.com/FOwgosSYXxc8roY2IIXj9w)
 - [Economia statistica](https://chat.whatsapp.com/FbxsGngKBw6CJdYu46ok9i)
-- [Filosofia](https://chat.whatsapp.com/GU3gmOtg9Yd8MPSvOpSQs8)
-- [Fisica](https://t.me/+G6gQOttS8us2Y2I8) (TG)
-- [Global Law](https://chat.whatsapp.com/JVp3bY61KTTKzBc9YWa1nb)
+- [Filosofia](https://chat.whatsapp.com/CeAQx7JT8FdBOj2iseJZi7)
+- [Fisica](https://t.me/+G6gQOttS8us2Y2I8) (TG) 🔴
+- [Fisica](https://chat.whatsapp.com/LVSJgOMqO310j2MVeMd2R4) 🔴
+- [Global Law](https://chat.whatsapp.com/D65RRDDtFgqEzXJ23LRv0o)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/Inup7Qm2ej33hJPF0hj3DY) 🔴
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+lBT_jqmLr9owYzZk) (TG) 🔴
-- [Lettere](https://chat.whatsapp.com/DIQwJYguEJfAZhEknTHooT)
+- [Lettere](https://chat.whatsapp.com/CsEtoZs9IrcA7ISydFTBri)
 - [Lingue e culture per il turismo (L-15)](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e letterature moderne (L-11)](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Lingue straniere per comunicazione internazionale](https://chat.whatsapp.com/JsDhpsBWktvEGzUmpa4pbM)
 - [Matematica per l'economia, finanza e assicurazione](https://chat.whatsapp.com/LMBZX89OM5nJtu1ONwblxA)
 - [Matematica (L-35)](https://chat.whatsapp.com/Hl2hmR9gE9h8nKTvvZ10Lr)
 - [Scienze biologiche (biologia)](https://t.me/uniToBiologiaPrimoAnno) (TG)
-- [Scienze della comunicazione](https://chat.whatsapp.com/Ep1M0CU546kFvTErNhFfAM)
+- [Scienze della comunicazione](https://chat.whatsapp.com/GNmZU0g3CH099wMheYKqcE)
 - [Scienze della formazione](https://chat.whatsapp.com/CBooK4zzUw6G7n8rozR7JX)
 - [Scienze della mediazione linguistica (L-12)](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze del diritto italiano ed Europeo](https://chat.whatsapp.com/HTdN6YSD2Ta0I9ABQYKtKP)
 - [Scienze dell'educazione (Savigliano)](https://chat.whatsapp.com/F9aOxB1TRjW6qXs6yLUwLO)
-- [Scienze e tecniche psicologiche](https://chat.whatsapp.com/Jm5NXmsdKXAHTqjvaDw1y7)
+- [Scienze e tecniche psicologiche](https://chat.whatsapp.com/GvvfbA7hetaLXG05N70g8n)
 - [Scienze internazionali](https://chat.whatsapp.com/LIhMZHSCLCMFeZTUNiEyoZ)
 - [Scienze internazionali, dello sviluppo e della cooperazione (SISCO)](https://chat.whatsapp.com/JWnutlQKAzNBNBcOCHHtte)
 - [Scienze motorie](https://chat.whatsapp.com/K9kQSEuvwo16QkrmDnowpg) (tutte le sedi)
@@ -69,7 +70,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze e Tecnologie Agrarie](https://chat.whatsapp.com/JVhJOMBwqGH3GjRyVlHgKV)
 - [Servizio sociale](https://chat.whatsapp.com/DPYgKQOnzarFY2fhfOObqb)
 - [Servizio sociale di Biella](https://chat.whatsapp.com/LasvWaOGUDj27X7c8QrS23)
-- [Storia](https://chat.whatsapp.com/KzIA237g31MGoBbDT8bG0x)
+- [Storia](https://chat.whatsapp.com/KjqndxY30N381COERDRnVV)
 - [Tecniche di assistenza veterinaria](https://t.me/+fS1FxT_UPm5jMzlk)
 
 <br>
@@ -78,9 +79,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Antropologia ed etnologia](https://chat.whatsapp.com/FCQRdcD3qib68hgw7bsVLe)
 - [Artificial intelligence for biomedicine and healtcare (AIBH)](https://t.me/+UqEzJYGCLkMxMGVk) (TG)
+- [Archeologia e Storia Antica](https://chat.whatsapp.com/Gyb0pKpjammFz0ShkDsTof)
 - [Biotechnological and chemical sciences in diagnostics](https://chat.whatsapp.com/DWcUXDiPsp7GT2galyU1Lz)
 - [Biotecnologie mediche](https://chat.whatsapp.com/KrECSmn4I2sBhMDKI9a5rT)
 - [Biotechnology for neuroscience](https://chat.whatsapp.com/KfFcXa0DPAFGBS7oq2petD)
+- [Business Administration](https://chat.whatsapp.com/KpPXdrtg7s01NnG2oy7TLr)
 - [Chimica clinica, forense e dello sport](https://chat.whatsapp.com/IoEul6Lvz4V4r7JpcX1CyF)
 - [Comunicazione, ICT e media](https://chat.whatsapp.com/EzTUSj9G8tq3KqHTsw3Pc8)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/BF889XZKsERCgM4EOZBtG7)
@@ -97,7 +100,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+lBT_jqmLr9owYzZk) (TG)
 - [International accounting](https://chat.whatsapp.com/D0nXbDYCSge2nT1QiAF9Ui)
 - [Languages Technologies and Digital Humanities](https://t.me/+DhlxyYtQuYBkNTlk)
-- [Scienze internazionali (LM-52)](https://chat.whatsapp.com/LR1qXZciFd3Cza0h3mkBcS)
 - [Letteratura, filologia e linguistica italiana](https://rebrand.ly/form-gruppi-unito)
 - [Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/Lf0KiUpDTRC8DVT2W6A5dm) 🔴
 - [Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/ISkjblhpxKiLO4ykL8Syh7) 🔴
@@ -109,7 +111,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Molecular biotechnology - translational](https://chat.whatsapp.com/Fhq1F3k0ZOEB1jOZuKaWKt)
 - [Politiche e servizi sociali](https://chat.whatsapp.com/GLs6FyAosGzAiDbIRRorcT)
 - [Professioni contabili](https://chat.whatsapp.com/JHHlJRyVZT2LNJK5U1QtRU)
-- [Psicologia clinica](https://chat.whatsapp.com/D2TIfksrtmqHPDcgvFt3l3)
+- [Psicologia clinica](https://chat.whatsapp.com/LOOqJbzK44KGw3J2nCrvry)
 - [Psicologia criminologica e forense](https://chat.whatsapp.com/Kc4fRPo3lc8209GP17WRgd)
 - [Psicologia del lavoro](https://chat.whatsapp.com/DvQg5wiJCs1JjHwG5zYbFX)
 - [Quantitative finance and insurance](https://chat.whatsapp.com/K5se20uYZ5P6TOIyFBFp7f)
@@ -119,8 +121,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze del governo](https://chat.whatsapp.com/HWqoMUU8BJFIv6ME7IjXby)
 - [Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/IWUC1qbp4Tq7aNa7dKeYJ3) 🔴
 - [Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/Bw67x8iRiki7OnSdG9nIse) 🔴
-- [Scienze internazionali](https://chat.whatsapp.com/GbCW22JdVVfDGFqYAI6lWG)
+- [Scienze internazionali](https://chat.whatsapp.com/GbCW22JdVVfDGFqYAI6lWG) 🔴
+- [Scienze internazionali (LM-52)](https://chat.whatsapp.com/LR1qXZciFd3Cza0h3mkBcS) 🔴
 - [Scienze Linguistiche LM-39](https://chat.whatsapp.com/Eh55SH07SGk0NmoMSLIWjf)
+- [Scienze storiche](https://chat.whatsapp.com/Gyb0pKpjammFz0ShkDsTof)
 - [Scienze strategiche](https://chat.whatsapp.com/GOyb2cbVTsu7jmI5f5eZNZ)
 - [Sociologia](https://chat.whatsapp.com/GEI4lnRmgfTK1wyWs8blmU)
 - [Stochastics and Data Science](https://chat.whatsapp.com/KjxBW0olULDEW48i0YFwwx) 🔴
@@ -134,7 +138,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea a Ciclo Unico 🔷**
 
-- [Giurisprudenza](https://chat.whatsapp.com/K8nfo5uLnMy85qlRQPtZ8W)
+- [Giurisprudenza](https://chat.whatsapp.com/Ji6OXbeNqivG8LmSwWgZea)
 - [Giurisprudenza Cuneo](https://chat.whatsapp.com/FS1Lpsy04DF0HLLoivu7IU)
 - [Medicina e Chirurgia](https://t.me/+FrOC2SXMpp85MzNk) (TG) 🔴
 - [Medicina e Chirurgia](https://chat.whatsapp.com/HB0kGR4JfeoKmsoefQgQR4) 🔴
@@ -162,6 +166,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 ### ⇊ *Changelog* ⇊
 
+>**18/09/24 |** Aggiunti (o aggiornati) gruppi per: **Scienze Storiche, Archeologia e Storia Antica, Fisica, Business Administration, Lettere, Scienze e tecniche psicologiche, Psicologia clinica, Giurisprudenza, Global Law, Storia, DAMS, Scienze della comunicazione, Filosofia, Beni culturali, Economia aziendale, Economia e commercio**<br>
 >**15/09/24 |** Aggiunti (o aggiornati) gruppi per: **Biotechnological and chemical sciences in diagnostics, Lingue dell'Asia e dell'Africa per la comunicazione e la cooperazione internazionale, Scienze giuridiche e amministrative delle organizzazioni pubbliche e private (Sagopp), Scienze biologiche (biologia), Languages Technologies and Digital Humanities, Medicina e Chirurgia**<br>
 >**11/09/24 |** Aggiunti gruppi per: **Scienze dell'educazione (Savigliano), Economia Aziendale Canale A, Fisica, Stochastics and Data Science, Medicina e Chirurgia, Scienze strategiche, Chimica clinica, forense e dello sport, Economia aziendale Canale C, Economia aziendale Canale B**<br>
 >**04/09/24 |** Aggiunti gruppi per: **Amministrazione (e controllo) aziendale, Biotechnological and chemical sciences in diagnostics, DAMS, lingue dell'Asia e Africa per la cooperazione internazionale, Scienze motorie, Scienze e Tecnologie Agrarie, Stochastics and Data Science, Filosofia (LM-78), Odontoiatria e protesi dentaria (LM-46), Informatica (magistrale)**<br>
