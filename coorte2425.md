@@ -77,6 +77,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Laurea Magistrale 🔶**
 
+- [Amministrazione e Gestione Digitale delle Aziende (AGDA)](https://chat.whatsapp.com/KUkxqcY11i58vYF39b2TpM)
 - [Antropologia ed etnologia](https://chat.whatsapp.com/FCQRdcD3qib68hgw7bsVLe)
 - [Artificial intelligence for biomedicine and healtcare (AIBH)](https://t.me/+UqEzJYGCLkMxMGVk) (TG)
 - [Archeologia e Storia Antica](https://chat.whatsapp.com/Gyb0pKpjammFz0ShkDsTof)
