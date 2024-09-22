@@ -191,7 +191,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Mediatore digitale SCIDECOM](https://t.me/digitale_scidecom_unito) (TG)
 - [Odontoiatra e protesi dentaria ](https://chat.whatsapp.com/ICpCfo0CUnv9nF8w16AzxB)
 - [Scienze internazionali (gruppo generale)](https://chat.whatsapp.com/DjTgXSWkSXwBG6SmmUp1NA)
-- [Scienze naturali](https://t.me/SNUnito) (TG) (generale triennale)
 
 <br>
 
