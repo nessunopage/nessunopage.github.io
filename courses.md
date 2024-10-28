@@ -1,6 +1,6 @@
 ## Taken and passed courses - Gianluca Barmina
 
-### Master's degree in Computer Science - Artificial Intelligence and Information Systems | UniTo<br><br>
+### Master's degree in Computer Science - Artificial Intelligence and Information Systems | UniTo<br>
 
 - Elements of analysis and probability | 30/30
 - Data and Business Process Modeling | 30/30 L
@@ -22,7 +22,7 @@
 
 <br>
 
-### Bachelor's degree in Computer Science | UniTo<br><br>
+### Bachelor's degree in Computer Science | UniTo<br>
 
 
 - Programming I | 29/30
