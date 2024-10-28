@@ -1,5 +1,27 @@
 ## Taken and passed courses - Gianluca Barmina
 
+### Master's degree in Computer Science - Artificial Intelligence and Information Systems | UniTo<br><br>
+
+- Elements of analysis and probability | 30/30
+- Data and Business Process Modeling | 30/30 L
+- Machine learning | 26/30
+- Developmental and educational psychology | 30/30 L
+- Management of Net Based Enterprises | 29/30
+- Ethics, Society and Privacy | 30/30 L
+- Data Bases: Advanced Models and Architectures | 29/30
+- English II | Passed (no grade)
+- Neural Networks and deep learning | 30/30
+- Software Engineering: Advanced Architectures and Techniques | 30/30 L
+- Conceptual Modelling for the Semantic Web | 30/30 L
+- Integration for Semantic Technologies course | 30/30 L
+- Mobile Device Programming | 30/30
+- Natural Language Technologies | 30/30 L
+
+>**Exams weighted average:** 29.452/30<br>
+>**Final master's grade:** 110/110 Cum Laude<br>
+
+<br>
+
 ### Bachelor's degree in Computer Science | UniTo<br><br>
 
 
@@ -27,28 +49,6 @@
 
 >**Exams weighted average:** 29.481/30<br>
 >**Final bachelor's grade:** 110/110 Cum Laude
-
-<br>
-
-### Master's degree in Computer Science - Artificial Intelligence and Information Systems | UniTo<br><br>
-
-- Elements of analysis and probability | 30/30
-- Data and Business Process Modeling | 30/30 L
-- Machine learning | 26/30
-- Developmental and educational psychology | 30/30 L
-- Management of Net Based Enterprises | 29/30
-- Ethics, Society and Privacy | 30/30 L
-- Data Bases: Advanced Models and Architectures | 29/30
-- English II | Passed (no grade)
-- Neural Networks and deep learning | 30/30
-- Software Engineering: Advanced Architectures and Techniques | 30/30 L
-- Conceptual Modelling for the Semantic Web | 30/30 L
-- Integration for Semantic Technologies course | 30/30 L
-- Mobile Device Programming | 30/30
-- Natural Language Technologies | 30/30 L
-
->**Exams weighted average:** 29.452/30<br>
->**Current final examination starting grade:** 109.590/110<br>
 
 <br>
 
