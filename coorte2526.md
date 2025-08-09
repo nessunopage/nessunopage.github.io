@@ -1,4 +1,4 @@
-# UniTo 2024/25 - Gruppi Corsi di Laurea 🎓
+# UniTo 2025/26 - Gruppi Corsi di Laurea 🎓
 
 ![logo](https://imgur.com/0j40uci.jpg)
 
