@@ -26,7 +26,14 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea Triennale 🔷**
 
+- [Amministrazione Aziendale](https://chat.whatsapp.com/GgZOxFhCyEv9sNNBTjDy9e?mode=ac_t)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
+- [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
+- [Lingue e culture per il turismo L-15](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
+- [Lingue e Letterature moderne L-11](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
+- [Scienze della Comunicazione](https://chat.whatsapp.com/HkR1H6Lbmqa127R1OxwODi?mode=ac_t)
+- [Scienze della Mediazione Linguistica L-12](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
+- 
 
 
 <br>
@@ -35,6 +42,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
+- [English and American Studies](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
+- [Lingue dell’Asia e dell’Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/BBL6Mc9IXj31V9Sqtlsn1R?mode=ems_copy_c)
+- [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
+- [Lingue per lo sviluppo turistico del territorio](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
+- [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
+- [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
 <br>
 
