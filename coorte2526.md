@@ -28,10 +28,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Amministrazione Aziendale](https://chat.whatsapp.com/GgZOxFhCyEv9sNNBTjDy9e?mode=ac_t)
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
-- [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
-- [Innovazione sociale, comunicazione e nuove tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
 - [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)
+- [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
+- [Innovazione sociale, comunicazione e nuove tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)
 - [Lingue e culture per il turismo L-15](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e Letterature moderne L-11](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Moda e Cultura d'Impresa](https://chat.whatsapp.com/CHvNDksI6Vk4c9hu3PcNdd)
