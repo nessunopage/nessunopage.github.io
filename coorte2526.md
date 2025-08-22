@@ -34,9 +34,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/DOPJhHF7Tn1CEDyweqMG9e?mode=ac_t)
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
-- [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)🔴
-- [Giurisprudenza](https://chat.whatsapp.com/EOistDMuPz8BmkOgghBp5q?mode=ac_t)🔴
-- [Giurisprudenza **Cuneo**](https://chat.whatsapp.com/BXOHFJM6wF73mjJ5NbsOYQ?mode=ac_t)
 - [Globa Law](https://chat.whatsapp.com/HZfHcmpjZvp2hrdeGz8NU8?mode=ac_t)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)🔴
@@ -104,7 +101,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
-
+- [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)🔴
+- [Giurisprudenza](https://chat.whatsapp.com/EOistDMuPz8BmkOgghBp5q?mode=ac_t)🔴
+- [Giurisprudenza **Cuneo**](https://chat.whatsapp.com/BXOHFJM6wF73mjJ5NbsOYQ?mode=ac_t)
 
 
 <br>
