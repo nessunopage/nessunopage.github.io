@@ -70,6 +70,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Antropologia ed etnologia](https://chat.whatsapp.com/GnmhjTA6aBJKDoZ7xvWTFq?mode=ac_t)
 - [Amministrazione e Gestione Digitale delle Aziende (AGDA)](https://chat.whatsapp.com/IdLOXFckVg25b8LKCRQQPz)
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
+- [Biotecnologie Mediche I anno 25/26](https://chat.whatsapp.com/EsH3X5WsicGBxq98yWa2aB?mode=ems_wa_c)
 - [Comunicazione, culture e media 2025/2026](https://chat.whatsapp.com/LTtFw5e5rtt3gGgtbkl6yk?mode=ac_t)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/Lmiig0sbE3BL0N5kPm9wYn?mode=ac_t)
 - [Culture moderne comparate](https://chat.whatsapp.com/KTIT1a4hNwq7xwzf3JnF0z?mode=ac_t)
