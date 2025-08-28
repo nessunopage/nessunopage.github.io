@@ -52,6 +52,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze dell'amministrazione digitale](https://chat.whatsapp.com/J7s1XC1cFlJ6RGX1EVh4Fj?mode=ac_t)
 - [Scienze dell'Educazione 2025/2026](https://chat.whatsapp.com/KrNy12ktRLv2uFWS451ysd?mode=ac_t)
 - [Scienze dell'Educazione **Savigliano** 2025/2026](https://chat.whatsapp.com/CQK6pZ4LzBwIssRcF4Nr5G?mode=ac_t)
+- [Scienze della Comunicazione](https://chat.whatsapp.com/EG7OxlDF15r5dmDrw8adfX?mode=ac_t)
 - [Scienze della Formazione 2025/2026](https://chat.whatsapp.com/EZWhh1qX7NMJkle8q77CtS?mode=ac_t)
 - [Scienze della Mediazione Linguistica L-12](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze Internazionali, dello Sviluppo e della Cooperazione SISCO](https://chat.whatsapp.com/H95UVuxdoMBCVbKXUoRocn?mode=ac_t)
