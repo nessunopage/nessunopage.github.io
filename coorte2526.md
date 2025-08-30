@@ -27,11 +27,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea Triennale 🔷**
 
 - [Amministrazione Aziendale](https://chat.whatsapp.com/GgZOxFhCyEv9sNNBTjDy9e?mode=ac_t)
-- [Comunicazione Interculturale](https://chat.whatsapp.com/FR9swW58jXV53R5NTTDO6F?mode=ac_)
+- [Comunicazione Interculturale](https://chat.whatsapp.com/FR9swW58jXV53R5NTTDO6F?mode=ac_t)
 - [Consulenza del Lavoro](https://chat.whatsapp.com/I76Ei7hVHdKGGeb2SJpunA?mode=ac_t)
 - [DAMS 2025/2026](https://chat.whatsapp.com/HMFPey9d1j4BNEUOI1jvDu?mode=ac_t)
 - [Diritto Agroalimentare](https://chat.whatsapp.com/LwTyhxqDyfu709Cxw8aCXA?mode=ac_t)
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/DOPJhHF7Tn1CEDyweqMG9e?mode=ac_t)
+- [Economia](https://t.me/+RRSXnZZnNeFjNWJk) (TG)
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
 - [Fisica](https://chat.whatsapp.com/EN7qhN9KJtaI2oPdIObkiY?mode=ac_t)
@@ -79,6 +80,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture Politiche e Società](https://chat.whatsapp.com/EGxSTqKoiPt49dpc2nwC8w?mode=ac_t)🔴
 - [Economic Analysis and Policy](https://chat.whatsapp.com/Ds4bAjtfn0L8CQUcHr7lXZ?mode=ac_t)
 - [English and American Studies](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
+- [Evoluzione del Comportamento Animale e dell'Uomo (ECAU)](https://t.me/+3_22ESv1HutlMWE0) (TG)
 - [Filosofia](https://chat.whatsapp.com/Ky1mJWr4Vzs9sOwtce5tsk?mode=ac_t)
 - [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)
 - [Global studies for International Cooperation](https://chat.whatsapp.com/BeMVIufVV9624BozqkRNIm?mode=ac_t)
@@ -104,6 +106,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
+- [Chimica e Tecnologia Farmaceutiche (CTF)](https://chat.whatsapp.com/BP609sv7ZS235ArGiV8xAk?mode=ems_copy_c)
 - [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)🔴
 - [Giurisprudenza](https://chat.whatsapp.com/EOistDMuPz8BmkOgghBp5q?mode=ac_t)🔴
 - [Giurisprudenza **Cuneo**](https://chat.whatsapp.com/BXOHFJM6wF73mjJ5NbsOYQ?mode=ac_t)
