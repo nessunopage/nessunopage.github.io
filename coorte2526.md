@@ -34,8 +34,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/DOPJhHF7Tn1CEDyweqMG9e?mode=ac_t)
 - [Economia](https://t.me/+RRSXnZZnNeFjNWJk) (TG)
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
+- [Farmacia](https://chat.whatsapp.com/FgaYqwxeqgF1SXazlDDq7W?mode=ac_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
-- [Fisica](https://chat.whatsapp.com/EN7qhN9KJtaI2oPdIObkiY?mode=ac_t)
+- [Fisica](https://chat.whatsapp.com/FgaYqwxeqgF1SXazlDDq7W?mode=ac_t)🔴
+- [Fisica](https://chat.whatsapp.com/EN7qhN9KJtaI2oPdIObkiY?mode=ac_t)🔴
 - [Globa Law](https://chat.whatsapp.com/HZfHcmpjZvp2hrdeGz8NU8?mode=ac_t)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)🔴
@@ -44,6 +46,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Ling. e Culture dell'Asia e dell'Africa 2025/2026](https://chat.whatsapp.com/DZtunDcks1L3j5M7rSDjbz?mode=ac_t)
 - [Lingue e Culture per il Turismo L-15](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e Letterature moderne L-11](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
+- [Matematica](https://chat.whatsapp.com/KNoi5d43jbJ5Wk3diKS29F?mode=ac_t)
 - [Moda e Cultura d'Impresa](https://chat.whatsapp.com/CHvNDksI6Vk4c9hu3PcNdd)
 - [Psicologia Clinica 2025/2026](https://chat.whatsapp.com/KwjW3kA7JUBD9vQw8f5OGi?mode=ac_t)
 - [Psicologia Criminale e Forsense 2025/2026](https://chat.whatsapp.com/EtEfAbzCwDNG0HUYWnE4Hu?mode=ac_t)
