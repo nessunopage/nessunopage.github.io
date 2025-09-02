@@ -60,6 +60,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della Formazione 2025/2026](https://chat.whatsapp.com/EZWhh1qX7NMJkle8q77CtS?mode=ac_t)
 - [Scienze della Mediazione Linguistica L-12](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze Internazionali, dello Sviluppo e della Cooperazione SISCO](https://chat.whatsapp.com/H95UVuxdoMBCVbKXUoRocn?mode=ac_t)
+- [Scienze Naturali](https://chat.whatsapp.com/JAOJ7dgoGdTKqauurJr1VQ?mode=ems_share_c)
 - [Scienze Politiche e Sociali](https://chat.whatsapp.com/K2V8RyyLPa97kQer3tS1mB?mode=ac_t)
 - [Scienze Strategiche](https://chat.whatsapp.com/JEmFIFqc2zo96Khe0mqSJe?mode=ac_)
 - [Scienze Tecniche e Psicologiche 2025/2026](https://chat.whatsapp.com/IheLmkHgSdsHS5yeZai4n0?mode=ac_t)
@@ -72,7 +73,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Laurea Magistrale 🔶**
 
-- [Antropologia ed etnologia](https://chat.whatsapp.com/GnmhjTA6aBJKDoZ7xvWTFq?mode=ac_t)
+- [Antropologia ed Etnologia](https://chat.whatsapp.com/GnmhjTA6aBJKDoZ7xvWTFq?mode=ac_t)
 - [Amministrazione e Gestione Digitale delle Aziende (AGDA)](https://chat.whatsapp.com/IdLOXFckVg25b8LKCRQQPz)
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
 - [Biotecnologie Mediche I anno 25/26](https://chat.whatsapp.com/EsH3X5WsicGBxq98yWa2aB?mode=ems_wa_c)
