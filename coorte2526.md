@@ -114,6 +114,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)🔴
 - [Giurisprudenza](https://chat.whatsapp.com/EOistDMuPz8BmkOgghBp5q?mode=ac_t)🔴
 - [Giurisprudenza **Cuneo**](https://chat.whatsapp.com/BXOHFJM6wF73mjJ5NbsOYQ?mode=ac_t)
+- [Medicina Semestre Filtro](https://t.me/+AN5Ro9QlSgU4OGZk?fbclid=PAdGRjcAMk7hxleHRuA2FlbQIxMQABpzJX2t64Ts-MmlLqhjtNge8jEY7xxCWkE1R2_wAju55o8kIuiZAjyr_sf0Ak_aem_zFATpWCUGbYzGl5FHOd7Aw)
+- [Odontoiatria Semestre Filtro](https://t.me/+AN5Ro9QlSgU4OGZk?fbclid=PAdGRjcAMk7hxleHRuA2FlbQIxMQABpzJX2t64Ts-MmlLqhjtNge8jEY7xxCWkE1R2_wAju55o8kIuiZAjyr_sf0Ak_aem_zFATpWCUGbYzGl5FHOd7Aw)
+- [Veterinaria Semestre Filtro](https://t.me/+AN5Ro9QlSgU4OGZk?fbclid=PAdGRjcAMk7hxleHRuA2FlbQIxMQABpzJX2t64Ts-MmlLqhjtNge8jEY7xxCWkE1R2_wAju55o8kIuiZAjyr_sf0Ak_aem_zFATpWCUGbYzGl5FHOd7Aw)
 
 
 <br>
