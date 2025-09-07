@@ -29,10 +29,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Amministrazione Aziendale](https://chat.whatsapp.com/GgZOxFhCyEv9sNNBTjDy9e?mode=ac_t)
 - [Comunicazione Interculturale](https://chat.whatsapp.com/FR9swW58jXV53R5NTTDO6F?mode=ac_t)
 - [Consulenza del Lavoro](https://chat.whatsapp.com/I76Ei7hVHdKGGeb2SJpunA?mode=ac_t)
+- [Culture e Letterature del Mondo Moderno](https://chat.whatsapp.com/CvTX43oHkxS8uOLIcZtWk0)
 - [DAMS 2025/2026](https://chat.whatsapp.com/HMFPey9d1j4BNEUOI1jvDu?mode=ac_t)
 - [Diritto Agroalimentare](https://chat.whatsapp.com/LwTyhxqDyfu709Cxw8aCXA?mode=ac_t)
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/DOPJhHF7Tn1CEDyweqMG9e?mode=ac_t)
-- [Economia](https://t.me/+RRSXnZZnNeFjNWJk) (TG)
+- [Economia](https://t.me/+RRSXnZZnNeFjNWJk) (TG) 🔴
+- [Economia](https://chat.whatsapp.com/BVQDas86pCQ00f0uYUstyA?mode=ems_share_t) 🔴
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
 - [Farmacia](https://chat.whatsapp.com/FgaYqwxeqgF1SXazlDDq7W?mode=ac_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
