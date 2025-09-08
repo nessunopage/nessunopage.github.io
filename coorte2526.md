@@ -36,7 +36,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia](https://t.me/+RRSXnZZnNeFjNWJk) (TG) 🔴
 - [Economia](https://chat.whatsapp.com/BVQDas86pCQ00f0uYUstyA?mode=ems_share_t) 🔴
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
-- [Farmacia](https://chat.whatsapp.com/FgaYqwxeqgF1SXazlDDq7W?mode=ac_t)
+- [Farmacia](https://chat.whatsapp.com/KNoi5d43jbJ5Wk3diKS29F?mode=ems_copy_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
 - [Fisica](https://chat.whatsapp.com/FgaYqwxeqgF1SXazlDDq7W?mode=ac_t)🔴
 - [Fisica](https://chat.whatsapp.com/EN7qhN9KJtaI2oPdIObkiY?mode=ac_t)🔴
