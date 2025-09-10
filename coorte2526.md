@@ -27,14 +27,18 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea Triennale 🔷**
 
 - [Amministrazione Aziendale](https://chat.whatsapp.com/GgZOxFhCyEv9sNNBTjDy9e?mode=ac_t)
+- [Biotecnologie](https://chat.whatsapp.com/Dz6shnAtdyLHi02wcxUBaC?mode=ems_copy_t)
 - [Comunicazione Interculturale](https://chat.whatsapp.com/FR9swW58jXV53R5NTTDO6F?mode=ac_t)
 - [Consulenza del Lavoro](https://chat.whatsapp.com/I76Ei7hVHdKGGeb2SJpunA?mode=ac_t)
 - [Culture e Letterature del Mondo Moderno](https://chat.whatsapp.com/CvTX43oHkxS8uOLIcZtWk0)
 - [DAMS 2025/2026](https://chat.whatsapp.com/HMFPey9d1j4BNEUOI1jvDu?mode=ac_t)
 - [Diritto Agroalimentare](https://chat.whatsapp.com/LwTyhxqDyfu709Cxw8aCXA?mode=ac_t)
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/DOPJhHF7Tn1CEDyweqMG9e?mode=ac_t)
-- [Economia](https://t.me/+RRSXnZZnNeFjNWJk) (TG) 🔴
-- [Economia](https://chat.whatsapp.com/BVQDas86pCQ00f0uYUstyA?mode=ems_share_t) 🔴
+- [Economia (Matricole)](https://t.me/+RRSXnZZnNeFjNWJk) (TG) 🔴
+- [Economia (Matricole)](https://chat.whatsapp.com/BVQDas86pCQ00f0uYUstyA?mode=ems_share_t) 🔴
+- [Economia (Gruppo del Dipartimento)](https://chat.whatsapp.com/GMNL6n8440x3omn7qA0CHl?mode=r_t)
+- [Economia Aziendale O-Z  25/26](https://chat.whatsapp.com/KFoyQm5JD4b1k9L2bx8lUm?mode=ems_copy_c)
+- [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG)
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
 - [Farmacia](https://chat.whatsapp.com/KNoi5d43jbJ5Wk3diKS29F?mode=ems_copy_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
@@ -78,7 +82,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Antropologia ed Etnologia](https://chat.whatsapp.com/GnmhjTA6aBJKDoZ7xvWTFq?mode=ac_t)
 - [Amministrazione e Gestione Digitale delle Aziende (AGDA)](https://chat.whatsapp.com/IdLOXFckVg25b8LKCRQQPz)
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
+- [Biologia dell'Ambiente](https://t.me/+NlY1jgQRMS1kMGU0)
 - [Biotecnologie Mediche I anno 25/26](https://chat.whatsapp.com/EsH3X5WsicGBxq98yWa2aB?mode=ems_wa_c)
+- [Biotecnologie Vegetali](https://chat.whatsapp.com/KLi1daiGEJH4n8PU1OV656?mode=ems_copy_t)
 - [Comunicazione, culture e media 2025/2026](https://chat.whatsapp.com/LTtFw5e5rtt3gGgtbkl6yk?mode=ac_t)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/Lmiig0sbE3BL0N5kPm9wYn?mode=ac_t)
 - [Culture moderne comparate](https://chat.whatsapp.com/KTIT1a4hNwq7xwzf3JnF0z?mode=ac_t)
