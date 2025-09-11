@@ -106,7 +106,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Psicologia Clinica](https://chat.whatsapp.com/HRxPkY8UI2FA5wtvChflxr)
 - [Psicologia del lavoro 2025/2026](https://chat.whatsapp.com/FWhrNpzeXvFGa4UJOn2kTE?mode=ac_t)
 - [Quantitative finance and insurance QFI](https://chat.whatsapp.com/Imh6cP6ThJY0Y7FG4XTvZk?mode=ac_t)
-- [Scienze dei Sistemi Naturali](https://t.me/+-tAjWGK6LOE1NmNk) (TG)
+- [Scienze dei Sistemi Naturali](https://t.me/+-tAjWGK6LOE1NmNk) (TG) 
 - [Scienze del Corpo e della Mente 2025/2026](https://chat.whatsapp.com/KMLV0bRFv03Fc6bowT7ihs?mode=ac_t)
 - [Scienze del Governo](https://chat.whatsapp.com/K2V8RyyLPa97kQer3tS1mB?mode=ac_t)
 - [Scienze del libro, del documento, del patrimonio culturale](https://chat.whatsapp.com/Exgl49Os7nOKFVPgPzkcJt?mode=ac_t)
