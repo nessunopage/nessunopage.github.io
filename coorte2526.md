@@ -52,7 +52,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Ling. e Culture dell'Asia e dell'Africa 2025/2026](https://chat.whatsapp.com/DZtunDcks1L3j5M7rSDjbz?mode=ac_t)
 - [Lingue e Culture per il Turismo L-15](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e Letterature moderne L-11](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
-- [Matematica](https://chat.whatsapp.com/KNoi5d43jbJ5Wk3diKS29F?mode=ac_t)
 - [Moda e Cultura d'Impresa](https://chat.whatsapp.com/CHvNDksI6Vk4c9hu3PcNdd)
 - [Psicologia Clinica 2025/2026](https://chat.whatsapp.com/KwjW3kA7JUBD9vQw8f5OGi?mode=ac_t)
 - [Psicologia Criminale e Forsense 2025/2026](https://chat.whatsapp.com/EtEfAbzCwDNG0HUYWnE4Hu?mode=ac_t)
@@ -83,7 +82,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Antropologia ed Etnologia](https://chat.whatsapp.com/GnmhjTA6aBJKDoZ7xvWTFq?mode=ac_t)
 - [Amministrazione e Gestione Digitale delle Aziende (AGDA)](https://chat.whatsapp.com/IdLOXFckVg25b8LKCRQQPz)
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
-- [Biologia dell'Ambiente](https://t.me/+NlY1jgQRMS1kMGU0)
+- [Biologia dell'Ambiente](https://t.me/+NlY1jgQRMS1kMGU0) (TG)🔴
+- [Biologia dell'Ambiente](https://chat.whatsapp.com/K0f566vjetTBEezjZp14ok?mode=ems_wa_c)🔴
 - [Biotecnologie Mediche I anno 25/26](https://chat.whatsapp.com/EsH3X5WsicGBxq98yWa2aB?mode=ems_wa_c)
 - [Biotecnologie Vegetali](https://chat.whatsapp.com/KLi1daiGEJH4n8PU1OV656?mode=ems_copy_t)
 - [Comunicazione, culture e media 2025/2026](https://chat.whatsapp.com/LTtFw5e5rtt3gGgtbkl6yk?mode=ac_t)
