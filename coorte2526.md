@@ -52,6 +52,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Ling. e Culture dell'Asia e dell'Africa 2025/2026](https://chat.whatsapp.com/DZtunDcks1L3j5M7rSDjbz?mode=ac_t)
 - [Lingue e Culture per il Turismo L-15](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e Letterature moderne L-11](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
+- [Matematica](https://chat.whatsapp.com/JSinxvUzVdyGqyqDz1OrXk?mode=ems_copy_c)
 - [Moda e Cultura d'Impresa](https://chat.whatsapp.com/CHvNDksI6Vk4c9hu3PcNdd)
 - [Psicologia Clinica 2025/2026](https://chat.whatsapp.com/KwjW3kA7JUBD9vQw8f5OGi?mode=ac_t)
 - [Psicologia Criminale e Forsense 2025/2026](https://chat.whatsapp.com/EtEfAbzCwDNG0HUYWnE4Hu?mode=ac_t)
