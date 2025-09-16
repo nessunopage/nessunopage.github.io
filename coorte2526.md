@@ -97,13 +97,17 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [English and American Studies](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [Evoluzione del Comportamento Animale e dell'Uomo (ECAU)](https://t.me/+3_22ESv1HutlMWE0) (TG)
 - [Filosofia](https://chat.whatsapp.com/Ky1mJWr4Vzs9sOwtce5tsk?mode=ac_t)
+- [Finanza Aziendale e Mercati Finanziari](https://chat.whatsapp.com/CUWWBL98AwnCQl5r22H5eb?mode=ems_copy_t)🔴
+- [Finanza Aziendale e Mercati Finanziari](https://chat.whatsapp.com/CG0230M02n45Ck7z6osb0c)🔴
 - [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)
 - [Global studies for International Cooperation](https://chat.whatsapp.com/BeMVIufVV9624BozqkRNIm?mode=ac_t)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
+- [Letteratura, Filologia e Linguistica Italiana](https://t.me/+QVJ_b41dH8JhYjZk) (TG)
 - [Lingue dell’Asia e dell’Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/BBL6Mc9IXj31V9Sqtlsn1R?mode=ems_copy_c)
 - [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue per lo sviluppo turistico del territorio](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
 - [Lingue straniere per la comunicazione internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
+- [Molecular Biotechnology - Computational and Translational](https://chat.whatsapp.com/C6w0lVfpClTEqK7ZM30Rir?mode=ems_copy_t)
 - [Politiche e Servizio Sociale](https://chat.whatsapp.com/LSPM7ZESvLA21VKXXpKmcg?mode=ac_t)
 - [Psicologia Clinica](https://chat.whatsapp.com/HRxPkY8UI2FA5wtvChflxr)
 - [Psicologia del lavoro 2025/2026](https://chat.whatsapp.com/FWhrNpzeXvFGa4UJOn2kTE?mode=ac_t)
