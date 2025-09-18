@@ -93,6 +93,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Culture moderne comparate](https://chat.whatsapp.com/KTIT1a4hNwq7xwzf3JnF0z?mode=ac_t)
 - [Culture Politiche e Società](https://chat.whatsapp.com/EtpMcYmlwy5EZRZrvJEmQr)🔴
 - [Culture Politiche e Società](https://chat.whatsapp.com/EGxSTqKoiPt49dpc2nwC8w?mode=ac_t)🔴
+- [Economia e Management](https://chat.whatsapp.com/LAnrjwz1VWEDwiw1wk6Gwf?mode=ems_copy_c)
 - [Economic Analysis and Policy](https://chat.whatsapp.com/Ds4bAjtfn0L8CQUcHr7lXZ?mode=ac_t)
 - [English and American Studies](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [Evoluzione del Comportamento Animale e dell'Uomo (ECAU)](https://t.me/+3_22ESv1HutlMWE0) (TG)
