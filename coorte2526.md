@@ -38,7 +38,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia (Matricole)](https://chat.whatsapp.com/BVQDas86pCQ00f0uYUstyA?mode=ems_share_t) 🔴
 - [Economia (Gruppo del Dipartimento)](https://chat.whatsapp.com/GMNL6n8440x3omn7qA0CHl?mode=r_t)
 - [Economia Aziendale O-Z  25/26](https://chat.whatsapp.com/KFoyQm5JD4b1k9L2bx8lUm?mode=ems_copy_c)
-- [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG)
+- [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG) 🔴
+- [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/CpjRkLb6m3e4HW1iops28e?mode=ems_copy_t) 🔴
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
 - [Farmacia](https://chat.whatsapp.com/KNoi5d43jbJ5Wk3diKS29F?mode=ems_copy_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
