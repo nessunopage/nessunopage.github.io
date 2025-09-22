@@ -46,6 +46,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Fisica](https://chat.whatsapp.com/FgaYqwxeqgF1SXazlDDq7W?mode=ac_t)🔴
 - [Fisica](https://chat.whatsapp.com/EN7qhN9KJtaI2oPdIObkiY?mode=ac_t)🔴
 - [Globa Law](https://chat.whatsapp.com/HZfHcmpjZvp2hrdeGz8NU8?mode=ac_t)
+- [Infermieristica - A.O.U. Città della Salute e della Scienza di Torino](https://chat.whatsapp.com/F1pdJ0VH5LiGI1oWi3rKeg?mode=ems_copy_t)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)🔴
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)🔴
@@ -55,6 +56,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e Letterature moderne L-11](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Matematica](https://chat.whatsapp.com/JSinxvUzVdyGqyqDz1OrXk?mode=ems_copy_c)
 - [Moda e Cultura d'Impresa](https://chat.whatsapp.com/CHvNDksI6Vk4c9hu3PcNdd)
+- [Ostetricia](https://chat.whatsapp.com/IxTCpQFXVATBOVIy12pHIw?mode=ems_copy_t)
 - [Psicologia Clinica 2025/2026](https://chat.whatsapp.com/KwjW3kA7JUBD9vQw8f5OGi?mode=ac_t)
 - [Psicologia Criminale e Forsense 2025/2026](https://chat.whatsapp.com/EtEfAbzCwDNG0HUYWnE4Hu?mode=ac_t)
 - [Scienze Amministrative e Consulenza del Lavoro](https://chat.whatsapp.com/HV7xQBBEepA9qqsCxz7q3D?mode=ac_t)
@@ -86,6 +88,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
 - [Biologia dell'Ambiente](https://t.me/+NlY1jgQRMS1kMGU0) (TG)🔴
 - [Biologia dell'Ambiente](https://chat.whatsapp.com/K0f566vjetTBEezjZp14ok?mode=ems_wa_c)🔴
+- [Biotechnological and Chemical Sciences in Diagnostic](https://chat.whatsapp.com/Bv7rCKAKqqSG0YWVBggeZJ)
 - [Biotecnologie Mediche I anno 25/26](https://chat.whatsapp.com/EsH3X5WsicGBxq98yWa2aB?mode=ems_wa_c)
 - [Biotecnologie Vegetali](https://chat.whatsapp.com/KLi1daiGEJH4n8PU1OV656?mode=ems_copy_t)
 - [Cinema, Arti della Scena, Musica e Media - CAM](https://t.me/+3ukhuJL1C65jMjI0) (TG)
