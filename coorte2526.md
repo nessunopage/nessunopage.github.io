@@ -93,6 +93,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Biotecnologie Vegetali](https://chat.whatsapp.com/KLi1daiGEJH4n8PU1OV656?mode=ems_copy_t)
 - [Cinema, Arti della Scena, Musica e Media - CAM](https://t.me/+3ukhuJL1C65jMjI0) (TG)
 - [Comunicazione, culture e media 2025/2026](https://chat.whatsapp.com/LTtFw5e5rtt3gGgtbkl6yk?mode=ac_t)
+- [Comunicazione, ICT e media (CIME)](https://chat.whatsapp.com/EJoC0JLv2iyB1CHVplPYfL)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/Lmiig0sbE3BL0N5kPm9wYn?mode=ac_t)
 - [Culture moderne comparate](https://chat.whatsapp.com/KTIT1a4hNwq7xwzf3JnF0z?mode=ac_t)
 - [Culture Politiche e Società](https://chat.whatsapp.com/EtpMcYmlwy5EZRZrvJEmQr)🔴
