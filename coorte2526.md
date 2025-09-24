@@ -38,8 +38,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia (Matricole)](https://chat.whatsapp.com/BVQDas86pCQ00f0uYUstyA?mode=ems_share_t) 🔴
 - [Economia (Gruppo del Dipartimento)](https://chat.whatsapp.com/GMNL6n8440x3omn7qA0CHl?mode=r_t)
 - [Economia Aziendale O-Z  25/26](https://chat.whatsapp.com/KFoyQm5JD4b1k9L2bx8lUm?mode=ems_copy_c)
-- [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG) 🔴
-- [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/CpjRkLb6m3e4HW1iops28e?mode=ems_copy_t) 🔴
+- [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/DGlTukqFpzw66BXukHdvWy?mode=ems_wa_t)🔴
+- [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG)🔴 
+- [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/CpjRkLb6m3e4HW1iops28e?mode=ems_copy_t)🔴
 - [Educazione Professionale](https://chat.whatsapp.com/KfjCoXyHS18F3tkpm55liI?mode=ac_t)
 - [Farmacia](https://chat.whatsapp.com/KNoi5d43jbJ5Wk3diKS29F?mode=ems_copy_t)
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
@@ -47,6 +48,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Fisica](https://chat.whatsapp.com/EN7qhN9KJtaI2oPdIObkiY?mode=ac_t)🔴
 - [Globa Law](https://chat.whatsapp.com/HZfHcmpjZvp2hrdeGz8NU8?mode=ac_t)
 - [Infermieristica - A.O.U. Città della Salute e della Scienza di Torino](https://chat.whatsapp.com/F1pdJ0VH5LiGI1oWi3rKeg?mode=ems_copy_t)
+- [Infermieristica **Ivrea**](https://chat.whatsapp.com/BSSQqR2v2oPBPAdICSVxjT?mode=ems_copy_t)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)🔴
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)🔴
@@ -101,14 +103,15 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia e Management](https://chat.whatsapp.com/LAnrjwz1VWEDwiw1wk6Gwf?mode=ems_copy_c)
 - [Economic Analysis and Policy](https://chat.whatsapp.com/Ds4bAjtfn0L8CQUcHr7lXZ?mode=ac_t)
 - [English and American Studies](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
-- [Evoluzione del Comportamento Animale e dell'Uomo (ECAU)](https://t.me/+3_22ESv1HutlMWE0) (TG)
+- [Evoluzione del Comportamento Animale e dell'Uomo (ECAU)](https://t.me/+3_22ESv1HutlMWE0) (TG)🔴
+- [Evoluzione del Comportamento Animale e dell'Uomo (ECAU)](https://chat.whatsapp.com/LrRHropLTHAB3sBjVUX6BT)🔴
 - [Filosofia](https://chat.whatsapp.com/Ky1mJWr4Vzs9sOwtce5tsk?mode=ac_t)
 - [Finanza Aziendale e Mercati Finanziari](https://chat.whatsapp.com/CUWWBL98AwnCQl5r22H5eb?mode=ems_copy_t)🔴
 - [Finanza Aziendale e Mercati Finanziari](https://chat.whatsapp.com/CG0230M02n45Ck7z6osb0c)🔴
 - [Giurisprudenza](https://chat.whatsapp.com/DHkFSr6KUMnEkzwvdRQMIC?mode=ac_t)
 - [Global studies for International Cooperation](https://chat.whatsapp.com/BeMVIufVV9624BozqkRNIm?mode=ac_t)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
-- [Letteratura, Filologia e Linguistica Italiana](https://t.me/+QVJ_b41dH8JhYjZk) (TG)
+- [Letteratura, Filologia e Linguistica Italiana](https://chat.whatsapp.com/Bv5ASB1gfQWHoLc17FHXZp)
 - [Lingue dell’Asia e dell’Africa per la comunicazione e la cooperazione internazionale](https://chat.whatsapp.com/BBL6Mc9IXj31V9Sqtlsn1R?mode=ems_copy_c)
 - [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue per lo sviluppo turistico del territorio](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
