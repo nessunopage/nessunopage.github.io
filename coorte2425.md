@@ -56,7 +56,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Matematica per l'economia, finanza e assicurazione](https://chat.whatsapp.com/LMBZX89OM5nJtu1ONwblxA)
 - [Matematica (L-35)](https://chat.whatsapp.com/Hl2hmR9gE9h8nKTvvZ10Lr)
 - [Scienze biologiche (biologia)](https://t.me/uniToBiologiaPrimoAnno) (TG)
-- [Scienze della comunicazione](https://chat.whatsapp.com/GNmZU0g3CH099wMheYKqcE)
+- [Scienze della comunicazione](https://chat.whatsapp.com/DHyiIyWvm4LLv0H2aPGwH9)
 - [Scienze della formazione](https://chat.whatsapp.com/CBooK4zzUw6G7n8rozR7JX)
 - [Scienze della mediazione linguistica (L-12)](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze del diritto italiano ed Europeo](https://chat.whatsapp.com/HTdN6YSD2Ta0I9ABQYKtKP)
