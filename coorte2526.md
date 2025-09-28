@@ -28,6 +28,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 - [Amministrazione Aziendale](https://chat.whatsapp.com/GgZOxFhCyEv9sNNBTjDy9e?mode=ac_t)
 - [Biotecnologie](https://chat.whatsapp.com/Dz6shnAtdyLHi02wcxUBaC?mode=ems_copy_t)
+- [Chimica e Tecnologie Chimiche (Corso A)](https://chat.whatsapp.com/KqQVX51rnvB0jS5UpQl3t3)
+- [Chimica e Tecnologie Chimiche (Corso B)](https://chat.whatsapp.com/FOZbBfxjFGO1e0psJJn7jw)
 - [Comunicazione Interculturale](https://chat.whatsapp.com/FR9swW58jXV53R5NTTDO6F?mode=ac_t)
 - [Consulenza del Lavoro](https://chat.whatsapp.com/I76Ei7hVHdKGGeb2SJpunA?mode=ac_t)
 - [Culture e Letterature del Mondo Moderno](https://chat.whatsapp.com/CvTX43oHkxS8uOLIcZtWk0)
