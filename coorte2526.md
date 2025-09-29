@@ -95,6 +95,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Biotechnological and Chemical Sciences in Diagnostic](https://chat.whatsapp.com/Bv7rCKAKqqSG0YWVBggeZJ)
 - [Biotecnologie Mediche I anno 25/26](https://chat.whatsapp.com/EsH3X5WsicGBxq98yWa2aB?mode=ems_wa_c)
 - [Biotecnologie Vegetali](https://chat.whatsapp.com/KLi1daiGEJH4n8PU1OV656?mode=ems_copy_t)
+- [Cellular and Molecular Biology](http://t.me/unitocellularmolecularbiology) (TG)
+- [Chimica Clinica, Forense e dello Sport](https://chat.whatsapp.com/EZkjzcXPO4z6mCFrWrSC2J)
 - [Cinema, Arti della Scena, Musica e Media - CAM](https://t.me/+3ukhuJL1C65jMjI0) (TG)
 - [Comunicazione, culture e media 2025/2026](https://chat.whatsapp.com/LTtFw5e5rtt3gGgtbkl6yk?mode=ac_t)
 - [Comunicazione, ICT e media (CIME)](https://chat.whatsapp.com/EJoC0JLv2iyB1CHVplPYfL)
