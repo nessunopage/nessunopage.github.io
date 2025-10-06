@@ -81,6 +81,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Servizio Sociale](https://chat.whatsapp.com/K2V8RyyLPa97kQer3tS1mB?mode=ac_t)
 - [Servizio Sociale **Biella**](https://chat.whatsapp.com/BATeCt4c9Dm0ZbpLapYZ9U?mode=ac_t)
 - [Storia](https://chat.whatsapp.com/H8DWXtSxxyg7qZfyBJm90K?mode=ac_t)
+- [Tecniche di Radiologia Medica per Immagini e Radioterapia(TSRM)](https://chat.whatsapp.com/CWV9ne7D0FF6NLglmamnTc?mode=ems_wa_c)
 
 
 <br>
