@@ -38,7 +38,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/DOPJhHF7Tn1CEDyweqMG9e?mode=ac_t)
 - [Economia (Matricole)](https://t.me/+RRSXnZZnNeFjNWJk) (TG) 🔴
 - [Economia (Matricole)](https://chat.whatsapp.com/BVQDas86pCQ00f0uYUstyA?mode=ems_share_t) 🔴
-- [Economia (Gruppo del Dipartimento)](https://chat.whatsapp.com/GMNL6n8440x3omn7qA0CHl?mode=r_t)
+- [Economia Aziendale(Gruppo del Dipartimento)](https://chat.whatsapp.com/GMNL6n8440x3omn7qA0CHl?mode=r_t)
+- [Economia Aziendale CANALE A 25/26](https://chat.whatsapp.com/EaOSEL7ae4hDTGIbqOPrWF?mode=wwc)
 - [Economia Aziendale O-Z  25/26](https://chat.whatsapp.com/KFoyQm5JD4b1k9L2bx8lUm?mode=ems_copy_c)
 - [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/DGlTukqFpzw66BXukHdvWy?mode=ems_wa_t)🔴
 - [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG)🔴 
@@ -48,6 +49,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Filosofia](https://chat.whatsapp.com/Btc36Q5kBKo1eb5zKFhUFQ?mode=ac_t)
 - [Fisica](https://chat.whatsapp.com/FgaYqwxeqgF1SXazlDDq7W?mode=ac_t)🔴
 - [Fisica](https://chat.whatsapp.com/EN7qhN9KJtaI2oPdIObkiY?mode=ac_t)🔴
+- [Fisioterapia](https://chat.whatsapp.com/FSopDNUuOsGLW8P7aCIRH6?mode=ems_copy_c)
 - [Globa Law](https://chat.whatsapp.com/HZfHcmpjZvp2hrdeGz8NU8?mode=ac_t)
 - [Infermieristica - A.O.U. Città della Salute e della Scienza di Torino](https://chat.whatsapp.com/F1pdJ0VH5LiGI1oWi3rKeg?mode=ems_copy_t)
 - [Infermieristica **Ivrea**](https://chat.whatsapp.com/BSSQqR2v2oPBPAdICSVxjT?mode=ems_copy_t)
@@ -71,6 +73,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze dell'Educazione **Savigliano** 2025/2026](https://chat.whatsapp.com/CQK6pZ4LzBwIssRcF4Nr5G?mode=ac_t)
 - [Scienze della Comunicazione](https://chat.whatsapp.com/EG7OxlDF15r5dmDrw8adfX?mode=ac_t)
 - [Scienze della Formazione 2025/2026](https://chat.whatsapp.com/EZWhh1qX7NMJkle8q77CtS?mode=ac_t)
+- [Scienze della Formazione Primaria](https://chat.whatsapp.com/Bfppxky3l7rCX9NhaSl52m?mode=wwc)
 - [Scienze della Mediazione Linguistica L-12](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze e Tecniche delle Attività Motorie e Sportive](https://t.me/+F82y2VzhFwpiMTM0) (TG)
 - [Scienze Internazionali, dello Sviluppo e della Cooperazione SISCO](https://chat.whatsapp.com/H95UVuxdoMBCVbKXUoRocn?mode=ac_t)
