@@ -27,6 +27,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea Triennale 🔷**
 
 - [Amministrazione Aziendale](https://chat.whatsapp.com/GgZOxFhCyEv9sNNBTjDy9e?mode=ac_t)
+- [Beni Culturali](https://chat.whatsapp.com/Cck2qutH6g9HFYE9W32eiE)
 - [Biotecnologie](https://chat.whatsapp.com/Dz6shnAtdyLHi02wcxUBaC?mode=ems_copy_t)
 - [Chimica e Tecnologie Chimiche (Corso A)](https://chat.whatsapp.com/KqQVX51rnvB0jS5UpQl3t3)
 - [Chimica e Tecnologie Chimiche (Corso B)](https://chat.whatsapp.com/FOZbBfxjFGO1e0psJJn7jw)
