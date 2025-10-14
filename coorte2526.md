@@ -42,6 +42,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia Aziendale(Gruppo del Dipartimento)](https://chat.whatsapp.com/GMNL6n8440x3omn7qA0CHl?mode=r_t)
 - [Economia Aziendale CANALE A 25/26](https://chat.whatsapp.com/EaOSEL7ae4hDTGIbqOPrWF?mode=wwc)
 - [Economia Aziendale O-Z  25/26](https://chat.whatsapp.com/KFoyQm5JD4b1k9L2bx8lUm?mode=ems_copy_c)
+- [Economia e Commercio Esomas](https://t.me/esomas) (TG)🔴
+- [Economia e Commercio Esomas](https://chat.whatsapp.com/EPgHOwPD9F1F3d9vYI0UDp?mode=wwt)🔴
 - [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/DGlTukqFpzw66BXukHdvWy?mode=ems_wa_t)🔴
 - [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG)🔴 
 - [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/CpjRkLb6m3e4HW1iops28e?mode=ems_copy_t)🔴
@@ -54,6 +56,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Globa Law](https://chat.whatsapp.com/HZfHcmpjZvp2hrdeGz8NU8?mode=ac_t)
 - [Infermieristica - A.O.U. Città della Salute e della Scienza di Torino](https://chat.whatsapp.com/F1pdJ0VH5LiGI1oWi3rKeg?mode=ems_copy_t)
 - [Infermieristica **Ivrea**](https://chat.whatsapp.com/BSSQqR2v2oPBPAdICSVxjT?mode=ems_copy_t)
+- [Infermieristica pediatrica UniTo 2025/26 - 1º anno](https://chat.whatsapp.com/CFDDVIA1eXn1nR5qyq2n2R?mode=wwc)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)🔴
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)🔴
