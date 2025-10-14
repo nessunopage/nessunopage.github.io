@@ -56,7 +56,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Globa Law](https://chat.whatsapp.com/HZfHcmpjZvp2hrdeGz8NU8?mode=ac_t)
 - [Infermieristica - A.O.U. Città della Salute e della Scienza di Torino](https://chat.whatsapp.com/F1pdJ0VH5LiGI1oWi3rKeg?mode=ems_copy_t)
 - [Infermieristica **Ivrea**](https://chat.whatsapp.com/BSSQqR2v2oPBPAdICSVxjT?mode=ems_copy_t)
-- [Infermieristica pediatrica UniTo 2025/26 - 1º anno](https://chat.whatsapp.com/CFDDVIA1eXn1nR5qyq2n2R?mode=wwc)
+- [Infermieristica Pediatrica](https://chat.whatsapp.com/CFDDVIA1eXn1nR5qyq2n2R?mode=wwc)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)🔴
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)🔴
