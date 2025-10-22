@@ -142,6 +142,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze Pedagogiche 2025/2026](https://chat.whatsapp.com/FhlDFSDWd28EV0M0ts5T90?mode=ac_t)
 - [Scienze Strategiche](https://chat.whatsapp.com/CiUqWceMb3r3rEdzuvxoLl?mode=ems_copy_t)
 - [Sociologia](https://chat.whatsapp.com/KZkTt7KX4Xb7jK8iK6BNk2?mode=ac_t)
+- [Storia dell'Arte](https://chat.whatsapp.com/L3WhGEbLL3JIE1RpQlnitw?mode=wwc)
 - [Studi Giuridici Europei](https://chat.whatsapp.com/Bs8N3ylKFOqK4UkBOVSQM0?mode=ac_t)
 - [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
