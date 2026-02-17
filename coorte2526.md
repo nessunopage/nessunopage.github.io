@@ -58,8 +58,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Infermieristica **Ivrea**](https://chat.whatsapp.com/BSSQqR2v2oPBPAdICSVxjT?mode=ems_copy_t)
 - [Infermieristica Pediatrica](https://chat.whatsapp.com/CFDDVIA1eXn1nR5qyq2n2R?mode=wwc)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/IrlZwaJmSQpBtF4Dte6vaM)🔴
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)🔴
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)
 - [Lettere 2025/2026](https://chat.whatsapp.com/CFKVJ5ZU3VY9ZtriysbldC?mode=ac_t)
 - [Ling. e Culture dell'Asia e dell'Africa 2025/2026](https://chat.whatsapp.com/DZtunDcks1L3j5M7rSDjbz?mode=ac_t)
 - [Lingue e Culture per il Turismo L-15](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
