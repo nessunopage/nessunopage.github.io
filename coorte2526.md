@@ -44,6 +44,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Economia Aziendale O-Z  25/26](https://chat.whatsapp.com/KFoyQm5JD4b1k9L2bx8lUm?mode=ems_copy_c)
 - [Economia e Commercio Esomas](https://t.me/esomas) (TG)🔴
 - [Economia e Commercio Esomas](https://chat.whatsapp.com/EPgHOwPD9F1F3d9vYI0UDp?mode=wwt)🔴
+- [Economia e Direzione delle Imprese -EDI](https://chat.whatsapp.com/DabyifWPvbBGfDawNj3kS7?s=cl&p=a&ilr=2&amv=1)
 - [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/DGlTukqFpzw66BXukHdvWy?mode=ems_wa_t)🔴
 - [Economia e Statistica per le Organizzazioni](https://t.me/+EbuUHrC_RJtlMmNk) (TG)🔴 
 - [Economia e Statistica per le Organizzazioni](https://chat.whatsapp.com/CpjRkLb6m3e4HW1iops28e?mode=ems_copy_t)🔴
