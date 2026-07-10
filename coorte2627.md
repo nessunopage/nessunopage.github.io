@@ -26,13 +26,13 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea Triennale 🔷**
 
-- 
+- [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 
 <br>
 
 **🔶 Laurea Magistrale 🔶**
 
--
+- [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
 
 <br>
 
