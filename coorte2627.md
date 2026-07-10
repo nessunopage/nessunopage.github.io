@@ -28,28 +28,37 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Comunicazione interculturale](https://chat.whatsapp.com/B7ixm40j3txBuflJ23KX0U?s=cl&p=i&ilr=4)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t)
+- [Lingue e Culture per il Turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
+- [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito)
-- [Scienze dell'amministrazione](https://chat.whatsapp.com/K05vWmWJnyNLuT4ADLPpDm?s=cl&p=i&ilr=4)
-- [Scienze e tecniche psicologiche](https://chat.whatsapp.com/HJJHE9guiIK8BH4Z750aLk?s=cl&p=i&ilr=4)
-- [Scienze internazionali, dello sviluppo e della cooperazione](https://chat.whatsapp.com/Ia5RMFjwGbxHEoCMBocM5H?s=cl&p=i&ilr=4)
-- [Scienze politiche e sociali](https://chat.whatsapp.com/G30ag1Bbl0M7eDEdLlF3QS?s=cl&p=i&ilr=4)
+- [Scienze dell'Amministrazione](https://chat.whatsapp.com/K05vWmWJnyNLuT4ADLPpDm?s=cl&p=i&ilr=4)
+- [Scienze della Mediazione Linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
+- [Scienze e Tecniche Psicologiche](https://chat.whatsapp.com/HJJHE9guiIK8BH4Z750aLk?s=cl&p=i&ilr=4)
+- [Scienze Internazionali, dello Sviluppo e della Cooperazione](https://chat.whatsapp.com/Ia5RMFjwGbxHEoCMBocM5H?s=cl&p=i&ilr=4)
+- [Scienze Politiche e Sociali](https://chat.whatsapp.com/G30ag1Bbl0M7eDEdLlF3QS?s=cl&p=i&ilr=4)
 
 <br>
 
 **🔶 Laurea Magistrale 🔶**
 
-- [Antropologia culturale ed etnologia](https://chat.whatsapp.com/LguWy7pZJaH9VHgY0EwHPI?s=cl&p=i&ilr=4)
+- [Antropologia Culturale ed Etnologia](https://chat.whatsapp.com/LguWy7pZJaH9VHgY0EwHPI?s=cl&p=i&ilr=4)
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
-- [Comunicazione pubblica e politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
+- [Comunicazione Pubblica e Politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
+- [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
-- [Organizzazione e governance delle politiche pubbliche](https://chat.whatsapp.com/G9m0aKgGHke3DRQ2fOTss3?s=cl&p=i&ilr=4)
-- [Psicologia clinica](https://chat.whatsapp.com/Beiv8jd2QEcAV0KBxbnZBA?s=cl&p=i&ilr=4)
-- [Psicologia cognitiva e neuroscienze](https://chat.whatsapp.com/LQZkcVyr8ODKFpFPFsYVrD?s=cl&p=i&ilr=4)
-- [Psicologia del lavoro e delle organizzazioni](https://chat.whatsapp.com/BQ7iMPtOO1O73Nq0ANPpXl?s=cl&p=i&ilr=4)
-- [Psicologia dello sviluppo e dell'educazione](https://chat.whatsapp.com/J7t7GwEQ2CD7BT8tj7HlSq?s=cl&p=i&ilr=4)
+- [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
+- [Lingue per il Sviluppo Turistico del Territorio](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
+- [Lingue Straniere per la Comunicazione Internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
+- [Organizzazione e Governance delle Politiche Pubbliche](https://chat.whatsapp.com/G9m0aKgGHke3DRQ2fOTss3?s=cl&p=i&ilr=4)
+- [Psicologia Clinica](https://chat.whatsapp.com/Beiv8jd2QEcAV0KBxbnZBA?s=cl&p=i&ilr=4)
+- [Psicologia Cognitiva e Neuroscienze](https://chat.whatsapp.com/LQZkcVyr8ODKFpFPFsYVrD?s=cl&p=i&ilr=4)
+- [Psicologia del Lavoro e delle Organizzazioni](https://chat.whatsapp.com/BQ7iMPtOO1O73Nq0ANPpXl?s=cl&p=i&ilr=4)
+- [Psicologia dello Sviluppo e dell'Educazione](https://chat.whatsapp.com/J7t7GwEQ2CD7BT8tj7HlSq?s=cl&p=i&ilr=4)
 - [Scienze del Governo](https://chat.whatsapp.com/CvymfwRLu1nDmlhDSZ7nHf?s=cl&p=i&ilr=4)
-- [Scienze internazionali](https://chat.whatsapp.com/DyhY1fKDUjJ6S9wB5bih6w?s=cl&p=i&ilr=4)
-- [Sociologia e ricerca sociale](https://chat.whatsapp.com/CoLMiFeLJx6L0Sc6LxlJuE?s=cl&p=i&ilr=4)
+- [Scienze Internazionali](https://chat.whatsapp.com/DyhY1fKDUjJ6S9wB5bih6w?s=cl&p=i&ilr=4) 🔴
+- [Scienze Internazionali](https://chat.whatsapp.com/LX9l7MBxzMY1Cshum7Ky6q?s=cl&p=a&ilr=0&amv=0) 🔴
+- [Sociologia e Ricerca Sociale](https://chat.whatsapp.com/CoLMiFeLJx6L0Sc6LxlJuE?s=cl&p=i&ilr=4)
+- [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
 <br>
 
