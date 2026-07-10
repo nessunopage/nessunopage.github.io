@@ -3,7 +3,7 @@
 ![logo](https://imgur.com/0j40uci.jpg)
 
 
-> Lista dei **gruppi matricole** conosciuti per i **Corsi di Laurea dell'Università di Torino** (**per immatricolati nel 2025/26**).<br><br>
+> Lista dei **gruppi matricole** conosciuti per i **Corsi di Laurea dell'Università di Torino** (**per immatricolati nel 2026/27**).<br><br>
 
 ### ⚠️ **<span style="color:red">ATTENZIONE</span>** ⚠️:  **GRUPPO MATRICOLE E INFORMAZIONI GENERALE: https://t.me/unito_mat**<br>
 
