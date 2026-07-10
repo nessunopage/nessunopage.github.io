@@ -39,6 +39,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔶 Laurea Magistrale 🔶**
 
 - [Antropologia culturale ed etnologia](https://chat.whatsapp.com/LguWy7pZJaH9VHgY0EwHPI?s=cl&p=i&ilr=4)
+- [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
 - [Comunicazione pubblica e politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
 - [Organizzazione e governance delle politiche pubbliche](https://chat.whatsapp.com/G9m0aKgGHke3DRQ2fOTss3?s=cl&p=i&ilr=4)
