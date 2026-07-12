@@ -50,6 +50,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Amministrazione e Controllo Aziendale](https://chat.whatsapp.com/InHTWroyZmw9Li9XZvica3?s=cl&p=i&ilr=4)
 - [Antropologia Culturale ed Etnologia](https://chat.whatsapp.com/LguWy7pZJaH9VHgY0EwHPI?s=cl&p=i&ilr=4)
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
+- [Artificial Intelligence and High Performance Computing Technologies](https://t.me/aihpcUnito) (TG)
 - [Comunicazione Pubblica e Politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
 - [Data Science and Economics](https://chat.whatsapp.com/Ks4Bl8Pt2jNGkb7BYwQxHa?s=cl&p=i&ilr=4)
 - [Economia e Management](https://chat.whatsapp.com/I4Zrc1wOI8E5l9m993UFAz?s=cl&p=i&ilr=4)
