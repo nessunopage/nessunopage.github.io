@@ -44,6 +44,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Management dell’Informazione e Comunicazione Aziendale](https://chat.whatsapp.com/HS3X7eurwNjAeu17v0RilM?s=cl&p=i&ilr=4)
 - [Matematica](https://chat.whatsapp.com/DlF8ky7LQvOEnwqNVEfl99?s=cl&p=i&ilr=4)
+- [Medicina Semestre Filtro](https://t.me/+AN5Ro9QlSgU4OGZk) (TG)
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito)
 - [Programmazione e Gestione dei Servizi Educativi](https://chat.whatsapp.com/JBPPmpQSIX7AttNr7gUgnN?s=cl&p=i&ilr=4)
 - [Scienze dell'Amministrazione](https://chat.whatsapp.com/K05vWmWJnyNLuT4ADLPpDm?s=cl&p=i&ilr=4)
