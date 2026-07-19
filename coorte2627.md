@@ -29,6 +29,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/CjBc93IRw0z8aJJtx8U6WJ) 🔴
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+8a3RDom9fjEwODZk) (TG) 🔴
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT) - Gruppo Cognomi A-L](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q) 🔴
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
 - [Lingue e Culture per il Turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
@@ -58,8 +59,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
-
-- 
+- [Medicina Semestre Filtro 2026/2027](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q)
+- [Medicina e Chirurgia Semestre Filtro 2026/2027](https://chat.whatsapp.com/E8IlqI3J0Qx6XSgfvg1eB2)
 
 <br>
 
