@@ -33,7 +33,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
 - [Lingue e Culture per il Turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
-- [Medicina Semestre Filtro](https://t.me/+AN5Ro9QlSgU4OGZk) (TG)
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Scienze della Mediazione Linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
   
@@ -59,8 +58,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
-- [Medicina Semestre Filtro 2026/2027](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q)
-- [Medicina e Chirurgia Semestre Filtro 2026/2027](https://chat.whatsapp.com/E8IlqI3J0Qx6XSgfvg1eB2)
+- [Medicina,Odontoiatria e Veterinaria 2026/2027 (con rappresentanti)](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q) 🔴
+- [Medicina e Chirurgia Semestre Filtro 2026/2027](https://chat.whatsapp.com/E8IlqI3J0Qx6XSgfvg1eB2) 🔴
+- [Medicina Semestre Filtro](https://t.me/+AN5Ro9QlSgU4OGZk) (TG) 🔴
 
 <br>
 
