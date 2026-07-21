@@ -27,9 +27,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea Triennale 🔷**
 - [Amministrazione Aziendale](https://t.me/amministrazioneaziendaleunito) (TG)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/CjBc93IRw0z8aJJtx8U6WJ) 🔴
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+8a3RDom9fjEwODZk) (TG) 🔴
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT) - Gruppo Cognomi A-L](https://chat.whatsapp.com/DzafWrP0uQ1Dl0tzmtHoiC) 🔴
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://t.me/+8a3RDom9fjEwODZk) (TG) 
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT) - Gruppo Cognomi A-L](https://chat.whatsapp.com/DzafWrP0uQ1Dl0tzmtHoiC)
+- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT) - Gruppo Cognomi M-Z](https://chat.whatsapp.com/FXkuGqKQU6iKT2WgNnsBrW)
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
 - [Lingue e Culture per il Turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG)
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
