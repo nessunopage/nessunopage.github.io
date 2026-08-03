@@ -43,6 +43,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
 - [Artificial Intelligence and High Performance Computing Technologies](https://t.me/aihpcUnito) (TG)
 - [Comunicazione Pubblica e Politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
+- [Economia dell'ambiente, della Cultura e del Territorio (EACT)](https://t.me/+3QMOjmUXRSxmZGE0) (TG) 
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
 - [Languages Technologies and Digital Humanities (LTDH)](https://t.me/+5TObT5FB_JVhMDE8) (TG)
