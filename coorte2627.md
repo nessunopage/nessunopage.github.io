@@ -68,8 +68,9 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔶 Altri gruppi 🔶**
 
 - [Annunci libri/appunti/case](https://t.me/annunci_unito) (TG)
+- [Gruppo OffTopic](https://t.me/unitounofficial) (TG)
+- [Gruppo InfoBorsisti EDISU](https://t.me/InfoBorsistiEdisuPiemonte) (TG)
 - [Lingua dei Segni Italiana (LIS)](https://chat.whatsapp.com/Fo8oPCYzSTPFH17BBV8K0u)
-- [Gruppo OffTopic](https://t.me/unitounofficial)
 
 <br>
 
