@@ -54,7 +54,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue Straniere per la Comunicazione Internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Scienze Internazionali](https://chat.whatsapp.com/LX9l7MBxzMY1Cshum7Ky6q?s=cl&p=a&ilr=0&amv=0) 
 - [Scienze Motorie LM67 e LM68](https://telegram.me/+WwdGxLUjR1c3ZGI0) (TG)
-- [Servizi Human-Centered per Società Digitali](https://t.me/+Tj7hvhpcA8xjZDlk) (TG)
+- [Servizi Human-Centered per Società Digitali](https://t.me/+GdUhkOlUfNVjNGNk) (TG)
 - [Sociologia e Ricerca Sociale](https://chat.whatsapp.com/D8TfjOQrLKW42ACK2eNeNm?mode=gi_t)
 - [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
