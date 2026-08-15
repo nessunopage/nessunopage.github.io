@@ -28,6 +28,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Amministrazione Aziendale](https://t.me/amministrazioneaziendaleunito) (TG)
 - [Economia](https://chat.whatsapp.com/EMIkDEJOsPF1Cu1UBVWO7W?s=cl&p=i&ilr=2&amv=2)
 - [Economia e Statistica per le Organizzazioni (EST)](https://chat.whatsapp.com/DdIUyEZv3w33PIfLF28Lnd?mode=gi_t)
+- [Global Law](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
@@ -63,9 +64,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea a Ciclo Unico 🔷**
 - [Giurisprudenza](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
-- [Medicina,Odontoiatria e Veterinaria 2026/2027 (con rappresentanti)](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q) 🔴
-- [Medicina e Chirurgia Semestre Filtro 2026/2027](https://chat.whatsapp.com/E8IlqI3J0Qx6XSgfvg1eB2) 🔴
-- [Medicina Semestre Filtro](https://t.me/+AN5Ro9QlSgU4OGZk) (TG) 🔴
+- [Medicina,Odontoiatria e Veterinaria 2026/2027](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q) 
 
 <br>
 
