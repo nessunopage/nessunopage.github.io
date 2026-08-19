@@ -26,9 +26,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea Triennale 🔷**
 - [Amministrazione Aziendale](https://t.me/amministrazioneaziendaleunito) (TG)
+- [Diritto per le Imprese](https://chat.whatsapp.com/JqVrsWjjcTB1iXApl21h7K?s=cl&p=a&ilr=0)
 - [Economia](https://chat.whatsapp.com/EMIkDEJOsPF1Cu1UBVWO7W?s=cl&p=i&ilr=2&amv=2)
 - [Economia e Statistica per le Organizzazioni (EST)](https://chat.whatsapp.com/DdIUyEZv3w33PIfLF28Lnd?mode=gi_t)
 - [Global Law](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
+- [Global Law A-L](https://chat.whatsapp.com/BYnRMfVItqpDHKzmEyFrEr?mode=gi_t)
+- [Global Law M-Z](https://chat.whatsapp.com/HluE19cQXTo5ErgFpocva0?mode=gi_t)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
@@ -67,6 +70,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea a Ciclo Unico 🔷**
 - [Chimica e tecnologia farmaceutiche (CTF)](https://chat.whatsapp.com/Co6au77sSx6GFb1Sveh8wS?s=cl&p=a&mlu=4)
 - [Giurisprudenza](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
+- [Giurisprudenza Cuneo](https://chat.whatsapp.com/HxR1QtSd4sD1ityTguF7uf?mode=gi_t)
 - [Medicina,Odontoiatria e Veterinaria 2026/2027](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q) 
 
 <br>
