@@ -28,6 +28,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Amministrazione Aziendale](https://t.me/amministrazioneaziendaleunito) (TG)
 - [Diritto per le Imprese](https://chat.whatsapp.com/JqVrsWjjcTB1iXApl21h7K?s=cl&p=a&ilr=0)
 - [Economia](https://chat.whatsapp.com/EMIkDEJOsPF1Cu1UBVWO7W?s=cl&p=i&ilr=2&amv=2)
+- [Economia Aziendale](https://chat.whatsapp.com/F22S8jLzMzC9i5uctc3Y4X?s=cl&p=i&mlu=4)
 - [Economia e Statistica per le Organizzazioni (EST)](https://chat.whatsapp.com/DdIUyEZv3w33PIfLF28Lnd?mode=gi_t)
 - [Global Law](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
 - [Global Law A-L](https://chat.whatsapp.com/BYnRMfVItqpDHKzmEyFrEr?mode=gi_t)
@@ -70,6 +71,10 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 **🔷 Laurea a Ciclo Unico 🔷**
 - [Chimica e tecnologia farmaceutiche (CTF)](https://chat.whatsapp.com/Co6au77sSx6GFb1Sveh8wS?s=cl&p=a&mlu=4)
 - [Giurisprudenza](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
+- [Giurisprudenza (A-C)](https://chat.whatsapp.com/Fw9clC3IDBuDeBaWA3wGJV?s=cl&p=i&mlu=4)
+- [Giurisprudenza (D-K)](https://chat.whatsapp.com/Delh9CNbvEFAPAJomPQFJG?s=cl&p=i&mlu=4)
+- [Giurisprudenza (L-P)](https://chat.whatsapp.com/DwoIPnZPLsWDQ5C53sDsKx?s=cl&p=i&mlu=4)
+- [Giurisprudenza (Q-Z)](https://chat.whatsapp.com/DZKUhX14DXF4DQYRGs9RWI?s=cl&p=i&mlu=4)
 - [Giurisprudenza Cuneo](https://chat.whatsapp.com/HxR1QtSd4sD1ityTguF7uf?mode=gi_t)
 - [Medicina,Odontoiatria e Veterinaria 2026/2027](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q) 
 
