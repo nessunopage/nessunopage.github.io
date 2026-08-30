@@ -29,7 +29,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Beni Culturali](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Comunicazione Interculturale](https://chat.whatsapp.com/B7ixm40j3txBuflJ23KX0U?mode=gi_t)
 - [Consulenza del Lavoro e Gestione delle Risorse Umane](https://chat.whatsapp.com/GNtj4JpqD5ELRpr30snoNz?s=cl&p=i&mlu=4)
-- [Diritto per le Imprese](https://chat.whatsapp.com/H08C2pK82mEJFmfdyBROzV?mode=gi_t)
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/CuT30XOl2Bv28wdO1rFRpl?mode=gi_t)
 - [Economia](https://chat.whatsapp.com/EMIkDEJOsPF1Cu1UBVWO7W?s=cl&p=i&ilr=2&amv=2)
 - [Economia Aziendale](https://chat.whatsapp.com/F22S8jLzMzC9i5uctc3Y4X?s=cl&p=i&mlu=4)
