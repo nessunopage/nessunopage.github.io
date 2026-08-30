@@ -26,7 +26,11 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea Triennale 🔷**
 - [Amministrazione Aziendale](https://t.me/amministrazioneaziendaleunito) (TG)
+- [Beni Culturali](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
+- [Comunicazione Interculturale](https://chat.whatsapp.com/B7ixm40j3txBuflJ23KX0U?mode=gi_t)
+- [Consulenza del Lavoro e Gestione delle Risorse Umane](https://chat.whatsapp.com/GNtj4JpqD5ELRpr30snoNz?s=cl&p=i&mlu=4)
 - [Diritto per le Imprese](https://chat.whatsapp.com/H08C2pK82mEJFmfdyBROzV?mode=gi_t)
+- [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/CuT30XOl2Bv28wdO1rFRpl?mode=gi_t)
 - [Economia](https://chat.whatsapp.com/EMIkDEJOsPF1Cu1UBVWO7W?s=cl&p=i&ilr=2&amv=2)
 - [Economia Aziendale](https://chat.whatsapp.com/F22S8jLzMzC9i5uctc3Y4X?s=cl&p=i&mlu=4)
 - [Economia Aziendale E-N](https://chat.whatsapp.com/GxoKnM0ZL2zCNtPbMnZQDF?s=sw&p=i&mlu=4)
@@ -52,6 +56,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔶 Laurea Magistrale 🔶**
 
+- [Archeologia](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
 - [Artificial Intelligence and High Performance Computing Technologies](https://t.me/aihpcUnito) (TG)
 - [Comunicazione Pubblica e Politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
@@ -65,12 +70,16 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue per il Sviluppo Turistico del Territorio](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
 - [Lingue Straniere per la Comunicazione Internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
+- [Politiche e Servizio Sociale](https://chat.whatsapp.com/LRtYRjPx7vUG1GZyCy6c8L)
 - [Psicologia Criminologica Forense LM-52](https://chat.whatsapp.com/KEAe9z1p37O6gRcbsVMqS9?mode=gi_t)
 - [Scienze amministrative e giuridiche delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/Ip0p8wX7JVQ86sRORSQkEG?s=hd&p=i&mlu=0)
+- [Scienze del libro e del patrimonio culturale](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Scienze Internazionali](https://chat.whatsapp.com/LX9l7MBxzMY1Cshum7Ky6q?s=cl&p=a&ilr=0&amv=0) 
 - [Scienze Motorie LM67 e LM68](https://telegram.me/+WwdGxLUjR1c3ZGI0) (TG)
+- [Scienze Storiche](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Servizi Human-Centered per Società Digitali](https://t.me/+GdUhkOlUfNVjNGNk) (TG)
 - [Sociologia e Ricerca Sociale](https://chat.whatsapp.com/D8TfjOQrLKW42ACK2eNeNm?mode=gi_t)
+- [Storia dell'Arte](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Traduzione](https://t.me/+cuO-ZYFpXok3ODhk) (TG)
 
 <br>
