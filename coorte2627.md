@@ -85,6 +85,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 
 **🔷 Laurea a Ciclo Unico 🔷**
 - [Chimica e tecnologia farmaceutiche (CTF)](https://chat.whatsapp.com/Co6au77sSx6GFb1Sveh8wS?s=cl&p=a&mlu=4)
+- [Farmacia](https://chat.whatsapp.com/KFE8i6Zehy4B0lfJHOSlh8?s=cl&p=i&mlu=4)
 - [Giurisprudenza](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
 - [Giurisprudenza (A-C)](https://chat.whatsapp.com/Fw9clC3IDBuDeBaWA3wGJV?s=cl&p=i&mlu=4)
 - [Giurisprudenza (D-K)](https://chat.whatsapp.com/Delh9CNbvEFAPAJomPQFJG?s=cl&p=i&mlu=4)
