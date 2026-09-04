@@ -43,13 +43,17 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/GGrLvdqZQNeD9XNyf7XhYO?mode=ac_t)
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
 - [Lingue e Culture per il Turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG) 🔴
-- [Lingue e culture per il turismo ](https://chat.whatsapp.com/FCENYgAhodi0MODbJhuXC6?s=cl&p=i&mlu=0&ilr=0) 🔴
+- [Lingue e Culture per il Turismo ](https://chat.whatsapp.com/FCENYgAhodi0MODbJhuXC6?s=cl&p=i&mlu=0&ilr=0) 🔴
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Management dell’informazione e comunicazione aziendale(MICA)](https://chat.whatsapp.com/HS3X7eurwNjAeu17v0RilM?s=hd&p=i&mlu=4)
 - [Matematica](https://chat.whatsapp.com/DlF8ky7LQvOEnwqNVEfl99?mode=gi_t)
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Psicologia Clinica](https://chat.whatsapp.com/Beiv8jd2QEcAV0KBxbnZBA?mode=gi_t)
+- [Scienze della Comunicazione](https://chat.whatsapp.com/HzV8OWcUZQkHCezFoG0prZ?s=cl&p=a&ilr=1)
 - [Scienze della Mediazione Linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
+- [Scienze delle Attività Motorie e Sportive Adattate](https://chat.whatsapp.com/Bn3dJG4y0HBCGMXPDGnzvY?mode=gi_t)
+- [Scienze Naturali](https://chat.whatsapp.com/H5lbdlQhPaQ5UqvF8APV4w?s=cl&p=a&ilr=1)
+- [Tecniche di Assistenza Veterinaria (TAVET)](https://chat.whatsapp.com/LRTPMWkdFDhIqxDIOk4118?s=cl&p=a&ilr=1)
   
 <br>
 
@@ -60,10 +64,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Artificial Intelligence and High Performance Computing Technologies](https://t.me/aihpcUnito) (TG)
 - [Comunicazione Pubblica e Politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
 - [Culture Moderne Comparate](https://chat.whatsapp.com/BxVXiIgGeWaBqAYeWFiTVh?s=cl&p=i&mlu=4&amv=1)
-- [Economia dell'ambiente, della Cultura e del Territorio (EACT)](https://t.me/+3QMOjmUXRSxmZGE0) (TG)
+- [Direzione d’Impresa Marketing e Strategia (DIMS)](https://chat.whatsapp.com/JtrsuL6SmHlHiFF4Cy9RkD?s=cl&p=i&mlu=4&ilr=4)
+- [Economia dell'Ambiente, della Cultura e del Territorio (EACT)](https://t.me/+3QMOjmUXRSxmZGE0) (TG)
 - [Economia e Management](https://chat.whatsapp.com/JqVrsWjjcTB1iXApl21h7K?s=cl&p=a&ilr=0)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [European Legal Studies](https://chat.whatsapp.com/B96XAIvloL2Be4TsFi4zrQ?s=cl&p=i&ilr=4)
+- [Finanza Aziendale e Mercati Finanziari](https://chat.whatsapp.com/LQpdw7JRepGAG1Gc8NpFhE?s=cl&p=a&mlu=4)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
 - [Languages Technologies and Digital Humanities (LTDH)](https://t.me/+5TObT5FB_JVhMDE8) (TG)
 - [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
@@ -84,7 +90,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 <br>
 
 **🔷 Laurea a Ciclo Unico 🔷**
-- [Chimica e tecnologia farmaceutiche (CTF)](https://chat.whatsapp.com/Co6au77sSx6GFb1Sveh8wS?s=cl&p=a&mlu=4)
+- [Chimica e Tecnologia Farmaceutiche (CTF)](https://chat.whatsapp.com/Co6au77sSx6GFb1Sveh8wS?s=cl&p=a&mlu=4)
 - [Farmacia](https://chat.whatsapp.com/KFE8i6Zehy4B0lfJHOSlh8?s=cl&p=i&mlu=4)
 - [Giurisprudenza](https://chat.whatsapp.com/KLMGQ5QMhV4BnEWsdNpIay?s=cl&p=i&mlu=0)
 - [Giurisprudenza (A-C)](https://chat.whatsapp.com/Fw9clC3IDBuDeBaWA3wGJV?s=cl&p=i&mlu=4)
