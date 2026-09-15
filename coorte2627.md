@@ -34,6 +34,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Discipline delle Arti, della Musica, dello Spettacolo e dei Media Digitali (DAMS)](https://chat.whatsapp.com/JSrNvurutM23fMcHZ9ImJp?s=cl&p=a&mlu=4) 🔴
 - [Economia](https://chat.whatsapp.com/EMIkDEJOsPF1Cu1UBVWO7W?s=cl&p=i&ilr=2&amv=2)
 - [Economia Aziendale](https://chat.whatsapp.com/F22S8jLzMzC9i5uctc3Y4X?s=cl&p=i&mlu=4)
+- [Economia aziendale A-D](https://chat.whatsapp.com/CwLxHOfJDilCMRxNYZeUqz?s=cl&p=i&mlu=4&ilr=4)
 - [Economia Aziendale E-N](https://chat.whatsapp.com/GxoKnM0ZL2zCNtPbMnZQDF?s=sw&p=i&mlu=4)
 - [Economia Aziendale O-Z](https://chat.whatsapp.com/FRD0p8Gfbw0DBGYG9azB9L?s=cl&p=i&mlu=4)
 - [Economia e Statistica per le Organizzazioni (EST)](https://chat.whatsapp.com/DdIUyEZv3w33PIfLF28Lnd?mode=gi_t)
@@ -50,14 +51,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Management dell’informazione e comunicazione aziendale(MICA)](https://chat.whatsapp.com/HS3X7eurwNjAeu17v0RilM?s=hd&p=i&mlu=4)
 - [Matematica](https://chat.whatsapp.com/DlF8ky7LQvOEnwqNVEfl99?mode=gi_t)
-- [Matematica per l'Economia, la Finanza & l'Assicurazione](https://chat.whatsapp.com/Iw8ipCKX2Mu0uwEZSCUgqk)
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Psicologia Clinica](https://chat.whatsapp.com/Beiv8jd2QEcAV0KBxbnZBA?mode=gi_t)
 - [Scienze della Comunicazione](https://chat.whatsapp.com/HzV8OWcUZQkHCezFoG0prZ?s=cl&p=a&ilr=1)
 - [Scienze della Mediazione Linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze delle Attività Motorie e Sportive Adattate](https://chat.whatsapp.com/Bn3dJG4y0HBCGMXPDGnzvY?mode=gi_t)
 - [Scienze economico-sociali e matematico-statistiche (ESOMAS)](https://t.me/esomas) (TG)
-- [Scienze Naturali](https://chat.whatsapp.com/H5lbdlQhPaQ5UqvF8APV4w?s=cl&p=a&ilr=1)
 - [Tecniche di Assistenza Veterinaria (TAVET)](https://chat.whatsapp.com/LRTPMWkdFDhIqxDIOk4118?s=cl&p=a&ilr=1)
   
 <br>
@@ -76,6 +75,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG)
 - [European Legal Studies](https://chat.whatsapp.com/B96XAIvloL2Be4TsFi4zrQ?s=cl&p=i&ilr=4)
 - [Finanza Aziendale e Mercati Finanziari](https://chat.whatsapp.com/LQpdw7JRepGAG1Gc8NpFhE?s=cl&p=a&mlu=4)
+- [Georisorse e Gestione Ecosostenibile d’Impresa (ECOGEST)](http://chat.whatsapp.com/Io13J2XU6VX6f32y0Sg7y3)
 - [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
 - [Languages Technologies and Digital Humanities (LTDH)](https://t.me/+5TObT5FB_JVhMDE8) (TG)
 - [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
@@ -83,6 +83,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue Straniere per la Comunicazione Internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Politiche e Servizio Sociale](https://chat.whatsapp.com/LRtYRjPx7vUG1GZyCy6c8L)
 - [Psicologia Criminologica Forense LM-52](https://chat.whatsapp.com/KEAe9z1p37O6gRcbsVMqS9?mode=gi_t)
+- [scienze Agrarie (LM-69)](https://chat.whatsapp.com/DSiqW8IuTG6IaR2qZIVZMy?s=cl&p=i&mlu=4&ilr=4)
 - [Scienze amministrative e giuridiche delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/Ip0p8wX7JVQ86sRORSQkEG?s=hd&p=i&mlu=0)
 - [Scienze del libro e del patrimonio culturale](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Scienze Internazionali](https://chat.whatsapp.com/LX9l7MBxzMY1Cshum7Ky6q?s=cl&p=a&ilr=0&amv=0) 
