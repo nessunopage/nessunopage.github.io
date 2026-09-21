@@ -29,6 +29,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Beni Culturali](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Comunicazione Interculturale](https://chat.whatsapp.com/B7ixm40j3txBuflJ23KX0U?mode=gi_t)
 - [Consulenza del Lavoro e Gestione delle Risorse Umane](https://chat.whatsapp.com/GNtj4JpqD5ELRpr30snoNz?s=cl&p=i&mlu=4)
+- [Chimica e Tecnologie Chimiche](https://chat.whatsapp.com/Fb59z7ewSaC8Vhxgyi5Cx2)
 - [Diritto per le Imprese e le Istituzioni](https://chat.whatsapp.com/CuT30XOl2Bv28wdO1rFRpl?mode=gi_t)
 - [Discipline delle Arti, della Musica, dello Spettacolo e dei Media Digitali (DAMS)](https://chat.whatsapp.com/GYFvxzX3tZlFoU4Uah3PFY?s=cl&p=i&mlu=4&ilr=4) 🔴
 - [Discipline delle Arti, della Musica, dello Spettacolo e dei Media Digitali (DAMS)](https://chat.whatsapp.com/JSrNvurutM23fMcHZ9ImJp?s=cl&p=a&mlu=4) 🔴
@@ -56,6 +57,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della Comunicazione](https://chat.whatsapp.com/HzV8OWcUZQkHCezFoG0prZ?s=cl&p=a&ilr=1)
 - [Scienze della Mediazione Linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze delle Attività Motorie e Sportive Adattate](https://chat.whatsapp.com/Bn3dJG4y0HBCGMXPDGnzvY?mode=gi_t)
+- [Scienze e Tecniche Psicologiche](https://chat.whatsapp.com/EnuOa44lfPw6ATw3Spm5kN?s=cl&p=i&mlu=4&ilr=4)
 - [Scienze economico-sociali e matematico-statistiche (ESOMAS)](https://t.me/esomas) (TG)
 - [Tecniche di Assistenza Veterinaria (TAVET)](https://chat.whatsapp.com/LRTPMWkdFDhIqxDIOk4118?s=cl&p=a&ilr=1)
   
@@ -74,6 +76,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Direzione d’Impresa Marketing e Strategia (DIMS)](https://chat.whatsapp.com/JtrsuL6SmHlHiFF4Cy9RkD?s=cl&p=i&mlu=4&ilr=4)
 - [Economia dell'Ambiente, della Cultura e del Territorio (EACT)](https://t.me/+3QMOjmUXRSxmZGE0) (TG)
 - [Economia e Management](https://chat.whatsapp.com/JqVrsWjjcTB1iXApl21h7K?s=cl&p=a&ilr=0)
+- [Economics](https://chat.whatsapp.com/JaIF4r5im2WHokJdyRkIAa?s=cl&p=a&mlu=0&ilr=4)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG) 🔴
 - [English and American Studies](https://chat.whatsapp.com/ETziVK9dkGe2oSEJysE96V?s=cl&p=i&mlu=0&ilr=4) 🔴
 - [European Legal Studies](https://chat.whatsapp.com/B96XAIvloL2Be4TsFi4zrQ?s=cl&p=i&ilr=4)
