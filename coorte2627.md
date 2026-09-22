@@ -55,6 +55,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Psicologia Clinica](https://chat.whatsapp.com/Beiv8jd2QEcAV0KBxbnZBA?mode=gi_t)
 - [Scienze della Comunicazione](https://chat.whatsapp.com/HzV8OWcUZQkHCezFoG0prZ?s=cl&p=a&ilr=1)
+- [Scienze dell’Educazione](https://chat.whatsapp.com/Fpls0MzXK7oHBJxf8DVQEL?s=cl&p=i&mlu=0&ilr=4)
 - [Scienze della Mediazione Linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze delle Attività Motorie e Sportive Adattate](https://chat.whatsapp.com/Bn3dJG4y0HBCGMXPDGnzvY?mode=gi_t)
 - [Scienze e Tecniche Psicologiche](https://chat.whatsapp.com/EnuOa44lfPw6ATw3Spm5kN?s=cl&p=i&mlu=4&ilr=4)
