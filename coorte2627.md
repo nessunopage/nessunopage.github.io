@@ -71,6 +71,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Artificial Intelligence for Biomedicine and Healthcare (AIBH)](https://t.me/aibh_unito) (TG)
 - [Artificial Intelligence and High Performance Computing Technologies](https://t.me/aihpcUnito) (TG)
 - [Biologia dell'Ambiente](https://chat.whatsapp.com/ESYO3lzWMzF7id34CmtLXM)
+- [Biotecnologie Industriali](https://t.me/+SoPO8YlQy704MzRk) (TG)
 - [Comunicazione e Culture dei Media](https://chat.whatsapp.com/LhkoUoSkhlAGihFDD5SR64?s=sw&p=i&mlu=4&ilr=4)
 - [Comunicazione Pubblica e Politica](https://chat.whatsapp.com/DrJQigEtGfl7fkmmOw82Ee?s=cl&p=i&ilr=4)
 - [Culture Moderne Comparate](https://chat.whatsapp.com/BxVXiIgGeWaBqAYeWFiTVh?s=cl&p=i&mlu=4&amv=1)
