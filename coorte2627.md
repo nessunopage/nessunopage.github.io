@@ -47,13 +47,12 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Infermieristica AOU Torino](https://chat.whatsapp.com/CEuEtL6m9Y4IyFDlsaBsaC?mode=gi_t)
 - [Infermieristica Orbassano](https://chat.whatsapp.com/JkuVXYSKF301maZ1PMTQrN?s=cl&p=i&mlu=4&ilr=4)
 - [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
-- [Innovazione Sociale, Comunicazione e Nuove Tecnologie (ICT)](https://chat.whatsapp.com/CDuFCQ1doTzIudqvZtHQne)
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
 - [Lingue e Culture per il Turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG) 🔴
 - [Lingue e Culture per il Turismo ](https://chat.whatsapp.com/FCENYgAhodi0MODbJhuXC6?s=cl&p=i&mlu=0&ilr=0) 🔴
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Management dell’informazione e comunicazione aziendale(MICA)](https://chat.whatsapp.com/HS3X7eurwNjAeu17v0RilM?s=hd&p=i&mlu=4)
-- [Matematica](https://chat.whatsapp.com/DlF8ky7LQvOEnwqNVEfl99?mode=gi_t)
+- [Matematica](https://chat.whatsapp.com/LtxcnEhwoOq0L8oQeBbWgb)
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Psicologia Clinica](https://chat.whatsapp.com/Beiv8jd2QEcAV0KBxbnZBA?mode=gi_t)
 - [Scienze della Comunicazione](https://chat.whatsapp.com/HzV8OWcUZQkHCezFoG0prZ?s=cl&p=a&ilr=1)
@@ -61,6 +60,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze della Mediazione Linguistica](https://t.me/+L3wZ2BFYSCViZmVk) (TG)
 - [Scienze delle Attività Motorie e Sportive Adattate](https://chat.whatsapp.com/Bn3dJG4y0HBCGMXPDGnzvY?mode=gi_t)
 - [Scienze e Tecniche Psicologiche](https://chat.whatsapp.com/EnuOa44lfPw6ATw3Spm5kN?s=cl&p=i&mlu=4&ilr=4)
+- [Scienze e Tecnologie Agrarie](https://chat.whatsapp.com/GK0QAifWmlG5BjtIFUUNKE?mode=gi_t)
 - [Scienze economico-sociali e matematico-statistiche (ESOMAS)](https://t.me/esomas) (TG)
 - [Tecniche di Assistenza Veterinaria (TAVET)](https://chat.whatsapp.com/LRTPMWkdFDhIqxDIOk4118?s=cl&p=a&ilr=1)
   
@@ -80,7 +80,6 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Direzione d’Impresa Marketing e Strategia (DIMS)](https://chat.whatsapp.com/JtrsuL6SmHlHiFF4Cy9RkD?s=cl&p=i&mlu=4&ilr=4)
 - [Economia dell'Ambiente, della Cultura e del Territorio (EACT)](https://t.me/+3QMOjmUXRSxmZGE0) (TG)
 - [Economia e Management](https://chat.whatsapp.com/JqVrsWjjcTB1iXApl21h7K?s=cl&p=a&ilr=0)
-- [Economics](https://chat.whatsapp.com/JaIF4r5im2WHokJdyRkIAa?s=cl&p=a&mlu=0&ilr=4)
 - [English and American Studies (EAS)](https://t.me/+Taf8W3V3m8E3Njk0) (TG) 🔴
 - [English and American Studies](https://chat.whatsapp.com/ETziVK9dkGe2oSEJysE96V?s=cl&p=i&mlu=0&ilr=4) 🔴
 - [European Legal Studies](https://chat.whatsapp.com/B96XAIvloL2Be4TsFi4zrQ?s=cl&p=i&ilr=4)
@@ -93,12 +92,14 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue Straniere per la Comunicazione Internazionale](https://t.me/+r6b7l-jnKidlZjM8) (TG)
 - [Politiche e Servizio Sociale](https://chat.whatsapp.com/LRtYRjPx7vUG1GZyCy6c8L)
 - [Psicologia Criminologica Forense LM-52](https://chat.whatsapp.com/KEAe9z1p37O6gRcbsVMqS9?mode=gi_t)
+- [Quantitative Finance and Insurance QFI](https://chat.whatsapp.com/Fsdy43eSJ2NBLWVu6nXmPD?mode=gi_t)
 - [scienze Agrarie (LM-69)](https://chat.whatsapp.com/DSiqW8IuTG6IaR2qZIVZMy?s=cl&p=i&mlu=4&ilr=4)
 - [Scienze amministrative e giuridiche delle organizzazioni pubbliche e private (Sagopp)](https://chat.whatsapp.com/Ip0p8wX7JVQ86sRORSQkEG?s=hd&p=i&mlu=0)
 - [Scienze del libro e del patrimonio culturale](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Scienze del Servizio Sociale L39](https://chat.whatsapp.com/Kh0UzGkOLXCLVuncUtxaLG?mode=gi_t)
 - [Scienze Internazionali](https://chat.whatsapp.com/LX9l7MBxzMY1Cshum7Ky6q?s=cl&p=a&ilr=0&amv=0) 
-- [Scienze Motorie LM67 e LM68](https://telegram.me/+WwdGxLUjR1c3ZGI0) (TG)
+- [Scienze Motorie LM67 e LM68](https://telegram.me/+WwdGxLUjR1c3ZGI0) (TG)🔴
+- [Scienze dello Sport LM68](https://chat.whatsapp.com/JC7nKpFrnAUC40laglJC9J?mode=gi_t) 🔴
 - [Scienze Storiche](https://chat.whatsapp.com/BDOlWHQZCxVEGUQlOS4Diw)
 - [Servizi Human-Centered per Società Digitali](https://chat.whatsapp.com/GBCNrogZBLAEkTWG138f0Q?s=cl&p=i&mlu=0&ilr=4) 
 - [Sociologia e Ricerca Sociale](https://chat.whatsapp.com/D8TfjOQrLKW42ACK2eNeNm?mode=gi_t)
