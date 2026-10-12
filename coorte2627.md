@@ -118,7 +118,8 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Giurisprudenza (L-P)](https://chat.whatsapp.com/DwoIPnZPLsWDQ5C53sDsKx?s=cl&p=i&mlu=4)
 - [Giurisprudenza (Q-Z)](https://chat.whatsapp.com/DZKUhX14DXF4DQYRGs9RWI?s=cl&p=i&mlu=4)
 - [Giurisprudenza Cuneo](https://chat.whatsapp.com/HxR1QtSd4sD1ityTguF7uf?mode=gi_t)
-- [Medicina,Odontoiatria e Veterinaria 2026/2027](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q) 
+- [Medicina,Odontoiatria e Veterinaria 2026/2027](https://chat.whatsapp.com/HrtdqpXTlc4CWWEIFgph4q)
+- [Scienze della Formazione Primaria (SFP) BIELLA](https://chat.whatsapp.com/G4PafBWWlzgCOvKwKvc9uc?s=cl&p=i&ilr=4&iam=0)
 
 <br>
 
