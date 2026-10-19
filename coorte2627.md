@@ -53,6 +53,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Lingue e Letterature Moderne](https://t.me/+TFXPEX3bf0cxYTlk) (TG)
 - [Management dell’informazione e comunicazione aziendale(MICA)](https://chat.whatsapp.com/HS3X7eurwNjAeu17v0RilM?s=hd&p=i&mlu=4)
 - [Matematica](https://chat.whatsapp.com/LtxcnEhwoOq0L8oQeBbWgb)
+- [Ottica e Optometria](https://chat.whatsapp.com/J4CcJGCK9G7BEuWrASTYtT?s=cl&p=i&mlu=0&ilr=4)
 - [Professioni Sanitarie](https://t.me/professionisanitarieunito) (TG)
 - [Psicologia Clinica](https://chat.whatsapp.com/Beiv8jd2QEcAV0KBxbnZBA?mode=gi_t)
 - [Scienze della Comunicazione](https://chat.whatsapp.com/HzV8OWcUZQkHCezFoG0prZ?s=cl&p=a&ilr=1)
@@ -62,7 +63,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Scienze e Tecniche Psicologiche](https://chat.whatsapp.com/EnuOa44lfPw6ATw3Spm5kN?s=cl&p=i&mlu=4&ilr=4)
 - [Scienze e Tecnologie Agrarie](https://chat.whatsapp.com/GK0QAifWmlG5BjtIFUUNKE?mode=gi_t)
 - [Scienze economico-sociali e matematico-statistiche (ESOMAS)](https://t.me/esomas) (TG)
-- [Scienze Politiche e Sociali](https://chat.whatsapp.com/DYxuhN7IbN47oTTg2nI1M1?mode=gi_t)
+- [Scienze Politiche e Sociali](https://chat.whatsapp.com/K8aG9kiQkmVI8eu5ktJp3b?s=cl&p=a&mlu=4&ilr=4)
 - [Tecniche di Assistenza Veterinaria (TAVET)](https://chat.whatsapp.com/LRTPMWkdFDhIqxDIOk4118?s=cl&p=a&ilr=1)
   
 <br>
