@@ -46,7 +46,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [Global Law M-Z](https://chat.whatsapp.com/HluE19cQXTo5ErgFpocva0?mode=gi_t)
 - [Infermieristica AOU Torino](https://chat.whatsapp.com/CEuEtL6m9Y4IyFDlsaBsaC?mode=gi_t)
 - [Infermieristica Orbassano](https://chat.whatsapp.com/JkuVXYSKF301maZ1PMTQrN?s=cl&p=i&mlu=4&ilr=4)
-- [Informatica](https://t.me/+Ox2fUmU2Un4xYTM0) (TG)
+- [Informatica](https://t.me/+nRbEVQMiufxjODQ8) (TG)
 - [Lingue e Culture dell'Asia e dell'Africa](https://chat.whatsapp.com/Ft16HfzidXN7QwNmdn6VnM?mode=gi_t) 
 - [Lingue e Culture per il Turismo](https://t.me/+dj2LGe4ud6VjMTM0) (TG) 🔴
 - [Lingue e Culture per il Turismo ](https://chat.whatsapp.com/FCENYgAhodi0MODbJhuXC6?s=cl&p=i&mlu=0&ilr=0) 🔴
@@ -87,7 +87,7 @@ Tutti i gruppi sono di _**WhatsApp**_ a meno che non sia affiancato da _**(TG)**
 - [European Legal Studies](https://chat.whatsapp.com/B96XAIvloL2Be4TsFi4zrQ?s=cl&p=i&ilr=4)
 - [Finanza Aziendale e Mercati Finanziari](https://chat.whatsapp.com/LQpdw7JRepGAG1Gc8NpFhE?s=cl&p=a&mlu=4)
 - [Georisorse e Gestione Ecosostenibile d’Impresa (ECOGEST)](http://chat.whatsapp.com/Io13J2XU6VX6f32y0Sg7y3)
-- [Informatica](https://t.me/joinchat/BbqyERQcACYhQFEO1iJD2g) (TG)
+- [Informatica](https://t.me/+OVsXI54-3IVmZmVk) (TG)
 - [Languages Technologies and Digital Humanities (LTDH)](https://t.me/+5TObT5FB_JVhMDE8) (TG)
 - [Lingue e Letterature Moderne](https://t.me/+jG9IxuXyzDFkODNk) (TG)
 - [Lingue per il Sviluppo Turistico del Territorio](https://t.me/+a7hp_6ZXYDdkZTU0) (TG)
